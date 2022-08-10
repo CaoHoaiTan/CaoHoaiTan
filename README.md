@@ -1,3 +1,3 @@
-_**Whether you think you can or think you can't, you're right..**_
+_**If I work as hard as I can, I wonder how much I can do in a day?**_
 
-Henry Ford
+Ezra Taft Benson
