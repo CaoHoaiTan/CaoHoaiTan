@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
 
-Honore de Balzac
+Ray Kroc
