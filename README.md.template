@@ -1,0 +1,2 @@
+{{ template "article-table" .Articles }}
+{{ template "hourly-table" $.TodayWeather.HourlyWeathers }}
