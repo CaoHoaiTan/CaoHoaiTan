@@ -1,6 +1,12 @@
-_**Hang Out with People Who are Better than You.**_
+<!-- quote_start -->
 
-Warren Buffett
+_**"Hang Out with People Who are Better than You."**_
+
+— Warren Buffett
+
+<!-- quote_end -->
+
+<br>
 
 [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=CaoHoaiTan&theme=iceberg&hide_border=true&mode=weekly)](https://git.io/streak-stats)
 

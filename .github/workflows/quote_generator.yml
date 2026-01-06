@@ -1,31 +1,33 @@
 name: main
 
 on:
-  # Cho phép chạy bằng tay từ giao diện Github
+  # Allows manually running the workflow from the GitHub Actions tab
   workflow_dispatch:
-  # Lên lịch chạy hàng ngày vào lúc 00:00 UTC
+  # Schedule the workflow to run daily at 00:00 UTC
+  # schedule:
+  # - cron: "0 0 * * *"
   schedule:
-  - cron: "0 0 * * *"
+    - cron: "*/5 * * * *"
 
 jobs:
   build:
     runs-on: ubuntu-latest
 
     steps:
-    - uses: actions/checkout@v2
-    - uses: actions/setup-node@v1
-      # Khởi tạo môi trường NodeJS
-      with:
-        node-version: 12.16.1
-    - run: npm ci
-    - name: Generate quote
-      # Chạy script để gọi API lấy quote sau đó sửa file README.md
-      run: npm run generate
-    - name: Update README.md
-      # Push file README.md đã được thay đổi lên github
-      run: |
-        git config --global user.email "john@example.com"
-        git config --global user.name "example"
-        git add .
-        git commit -m "Updated README.md" || echo "No changes to commit"
-        git push
+      - uses: actions/checkout@v3
+      - uses: actions/setup-node@v3
+        # Set up the Node.js environment
+        with:
+          node-version: 18 # Recommend updating from v12 (EOL) to a reliable LTS version like 18 or 20
+      - run: npm ci
+      - name: Generate quote
+        # Execute the script to fetch the quote and modify README.md
+        run: npm run generate
+      - name: Update README.md
+        # Commit and push the updated README.md changes to GitHub
+        run: |
+          git config --global user.email "caohoaitan@gmail.com"
+          git config --global user.name "CaoHoaiTan"
+          git add .
+          git commit -m "Updated README.md" || echo "No changes to commit"
+          git push
