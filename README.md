@@ -1,9 +1,7 @@
 <!-- quote_start -->
+_**"Most people spend more time and energy going around problems than in trying to solve them. "**_
 
-_**"Hang Out with People Who are Better than You."**_
-
-— Warren Buffett
-
+— Henry Ford
 <!-- quote_end -->
 
 <br>
