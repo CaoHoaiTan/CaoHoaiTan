@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Most people spend more time and energy going around problems than in trying to solve them. "**_
+_**"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."**_
 
-— Henry Ford
+— Dr. Seuss
 <!-- quote_end -->
 
 <br>
