@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."**_
+_**"To be prepared is half the victory. "**_
 
-— Dr. Seuss
+— Miguel de Cervantes
 <!-- quote_end -->
 
 <br>
