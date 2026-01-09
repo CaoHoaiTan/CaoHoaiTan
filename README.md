@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To be prepared is half the victory. "**_
+_**"The most creative act you will ever undertake is the act of creating yourself."**_
 
-— Miguel de Cervantes
+— Deepak Chopra
 <!-- quote_end -->
 
 <br>
