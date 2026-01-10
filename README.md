@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The most creative act you will ever undertake is the act of creating yourself."**_
+_**"A man who dares to waste one hour of time has not discovered the value of life."**_
 
-— Deepak Chopra
+— Charles Darwin
 <!-- quote_end -->
 
 <br>
