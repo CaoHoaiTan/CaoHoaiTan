@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A man who dares to waste one hour of time has not discovered the value of life."**_
+_**"Yesterday is gone. Tomorrow has not yet come. We have only today."**_
 
-— Charles Darwin
+— Mother Teresa
 <!-- quote_end -->
 
 <br>
