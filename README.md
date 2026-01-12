@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Yesterday is gone. Tomorrow has not yet come. We have only today."**_
+_**"Presents are made for the pleasure of who gives them, not the merits of who receives them."**_
 
-— Mother Teresa
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
