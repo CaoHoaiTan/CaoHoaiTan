@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head."**_
+_**"You're always free to change your mind and choose a different future, or a different past."**_
 
-— Stephen King
+— Richard Bach
 <!-- quote_end -->
 
 <br>
