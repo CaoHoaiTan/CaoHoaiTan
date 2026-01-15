@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You're always free to change your mind and choose a different future, or a different past."**_
+_**"To do two things at once is to do neither."**_
 
-— Richard Bach
+— Publilius Syrus
 <!-- quote_end -->
 
 <br>
