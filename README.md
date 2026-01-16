@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To do two things at once is to do neither."**_
+_**"The goal is not to be perfect by the end, the goal is to be better today."**_
 
-— Publilius Syrus
+— Simon Sinek
 <!-- quote_end -->
 
 <br>
