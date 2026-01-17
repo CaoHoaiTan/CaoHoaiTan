@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The goal is not to be perfect by the end, the goal is to be better today."**_
+_**"Silence is a source of great strength."**_
 
-— Simon Sinek
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
