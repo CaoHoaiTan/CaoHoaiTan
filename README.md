@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Silence is a source of great strength."**_
+_**"Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in."**_
 
-— Lao Tzu
+— Robert Greene
 <!-- quote_end -->
 
 <br>
