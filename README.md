@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in."**_
+_**"It's better to dance than to march through life."**_
 
-— Robert Greene
+— Yoko Ono
 <!-- quote_end -->
 
 <br>
