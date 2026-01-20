@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's better to dance than to march through life."**_
+_**"Outstanding people have one thing in common: an absolute sense of mission.  "**_
 
-— Yoko Ono
+— Zig Ziglar
 <!-- quote_end -->
 
 <br>
