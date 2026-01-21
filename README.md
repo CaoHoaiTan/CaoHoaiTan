@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Outstanding people have one thing in common: an absolute sense of mission.  "**_
+_**"The friendship that can cease has never been real. "**_
 
-— Zig Ziglar
+— St. Jerome
 <!-- quote_end -->
 
 <br>
