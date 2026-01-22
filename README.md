@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The friendship that can cease has never been real. "**_
+_**"You need to be doing fewer things for more effect instead of doing more things with side effects."**_
 
-— St. Jerome
+— Gary Keller
 <!-- quote_end -->
 
 <br>
