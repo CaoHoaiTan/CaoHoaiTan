@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You need to be doing fewer things for more effect instead of doing more things with side effects."**_
+_**"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore."**_
 
-— Gary Keller
+— Robert Greene
 <!-- quote_end -->
 
 <br>
