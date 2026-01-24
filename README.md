@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore."**_
+_**"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."**_
 
-— Robert Greene
+— Josh Waitzkin
 <!-- quote_end -->
 
 <br>
