@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"How you think is as important as as what you think."**_
+_**"You are free, and that is why you are lost. "**_
 
-— Unknown
+— Franz Kafka
 <!-- quote_end -->
 
 <br>
