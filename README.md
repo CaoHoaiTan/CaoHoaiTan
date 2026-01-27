@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are free, and that is why you are lost. "**_
+_**"If someone betrays you once, it's their fault; if they betray you twice, it's your fault."**_
 
-— Franz Kafka
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
