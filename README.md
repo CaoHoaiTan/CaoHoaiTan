@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Silence is a source of great strength."**_
+_**"Your only obligation in any lifetime is to be true to yourself."**_
 
-— Lao Tzu
+— Richard Bach
 <!-- quote_end -->
 
 <br>
