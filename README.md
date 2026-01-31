@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your only obligation in any lifetime is to be true to yourself."**_
+_**"Know yourself and you will win all battles."**_
 
-— Richard Bach
+— Sun Tzu
 <!-- quote_end -->
 
 <br>
