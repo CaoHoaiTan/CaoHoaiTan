@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Know yourself and you will win all battles."**_
+_**"What you get by achieving your goals is not as important as what you become by achieving your goals."**_
 
-— Sun Tzu
+— Henry David Thoreau
 <!-- quote_end -->
 
 <br>
