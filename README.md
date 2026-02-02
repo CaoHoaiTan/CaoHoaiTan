@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"What you get by achieving your goals is not as important as what you become by achieving your goals."**_
+_**"No one can hurt you without your consent."**_
 
-— Henry David Thoreau
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
