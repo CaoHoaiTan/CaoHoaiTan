@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No one can hurt you without your consent."**_
+_**"No one ever said life was fair. Just Eventful."**_
 
-— Eleanor Roosevelt
+— Carol Burnett
 <!-- quote_end -->
 
 <br>
