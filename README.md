@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No one ever said life was fair. Just Eventful."**_
+_**"The more knowledge you have, the more you're free to rely on your instincts."**_
 
-— Carol Burnett
+— Arnold Schwarzenegger
 <!-- quote_end -->
 
 <br>
