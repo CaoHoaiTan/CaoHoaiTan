@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The more knowledge you have, the more you're free to rely on your instincts."**_
+_**"There is a wisdom of the head, and there is a wisdom of the heart."**_
 
-— Arnold Schwarzenegger
+— Charles Dickens
 <!-- quote_end -->
 
 <br>
