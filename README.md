@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is a wisdom of the head, and there is a wisdom of the heart."**_
+_**"Be happy now, without reason - or you never will be at all."**_
 
-— Charles Dickens
+— Dan Millman
 <!-- quote_end -->
 
 <br>
