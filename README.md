@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Be happy now, without reason - or you never will be at all."**_
+_**"Create each day anew."**_
 
-— Dan Millman
+— Morihei Ueshiba
 <!-- quote_end -->
 
 <br>
