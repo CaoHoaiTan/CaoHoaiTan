@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Create each day anew."**_
+_**"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."**_
 
-— Morihei Ueshiba
+— Colin Powell
 <!-- quote_end -->
 
 <br>
