@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."**_
+_**"You are not one person, but three: The one you think you are; The one others think you are; The one you really are."**_
 
-— Colin Powell
+— Sathya Sai Baba
 <!-- quote_end -->
 
 <br>
