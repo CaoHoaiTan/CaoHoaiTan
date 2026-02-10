@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are not one person, but three: The one you think you are; The one others think you are; The one you really are."**_
+_**"All great truths begin as blasphemies."**_
 
-— Sathya Sai Baba
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
