@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"All great truths begin as blasphemies."**_
+_**"Man's character is his fate."**_
 
-— George Bernard Shaw
+— Heraclitus
 <!-- quote_end -->
 
 <br>
