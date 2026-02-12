@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Man's character is his fate."**_
+_**"We are all self-made, but only the successful will admit it."**_
 
-— Heraclitus
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
