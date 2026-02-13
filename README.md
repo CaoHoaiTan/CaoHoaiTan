@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all self-made, but only the successful will admit it."**_
+_**"All leaders are readers."**_
 
-— Earl Nightingale
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
