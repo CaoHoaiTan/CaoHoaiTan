@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"All leaders are readers."**_
+_**"Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through."**_
 
-— Jim Rohn
+— Jonathan Swift
 <!-- quote_end -->
 
 <br>
