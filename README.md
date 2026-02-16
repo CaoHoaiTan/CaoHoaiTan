@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If a thing is worth doing, it is worth doing badly."**_
+_**"We are all born ignorant, but one must work hard to remain stupid."**_
 
-— Gilbert Chesterton
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
