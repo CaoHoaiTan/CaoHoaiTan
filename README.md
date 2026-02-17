@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all born ignorant, but one must work hard to remain stupid."**_
+_**"Remember that sometimes not getting what you want is a wonderful stroke of luck."**_
 
-— Benjamin Franklin
+— Dalai Lama
 <!-- quote_end -->
 
 <br>
