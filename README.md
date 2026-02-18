@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Remember that sometimes not getting what you want is a wonderful stroke of luck."**_
+_**"Rudeness is the weak man's imitation of strength."**_
 
-— Dalai Lama
+— Eric Hoffer
 <!-- quote_end -->
 
 <br>
