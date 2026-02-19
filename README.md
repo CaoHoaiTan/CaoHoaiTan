@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Rudeness is the weak man's imitation of strength."**_
+_**"Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. "**_
 
-— Eric Hoffer
+— Franz Kafka
 <!-- quote_end -->
 
 <br>
