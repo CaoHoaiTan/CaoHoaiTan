@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach."**_
+_**"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."**_
 
-— Benjamin Mays
+— Ronald Reagan
 <!-- quote_end -->
 
 <br>
