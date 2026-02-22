@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."**_
+_**"To a mind that is still, the entire universe surrenders."**_
 
-— Ronald Reagan
+— Zhuangzi
 <!-- quote_end -->
 
 <br>
