@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To a mind that is still, the entire universe surrenders."**_
+_**"Children are our greatest natural resource."**_
 
-— Zhuangzi
+— Herbert Hoover
 <!-- quote_end -->
 
 <br>
