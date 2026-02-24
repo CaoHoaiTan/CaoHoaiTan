@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Children are our greatest natural resource."**_
+_**"By failing to prepare, you are preparing to fail."**_
 
-— Herbert Hoover
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
