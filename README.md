@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"By failing to prepare, you are preparing to fail."**_
+_**"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."**_
 
-— Benjamin Franklin
+— Stephen King
 <!-- quote_end -->
 
 <br>
