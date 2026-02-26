@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."**_
+_**"Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge."**_
 
-— Stephen King
+— Eckhart Tolle
 <!-- quote_end -->
 
 <br>
