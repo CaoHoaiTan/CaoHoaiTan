@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A comfort zone is a beautiful place, but nothing ever grows there."**_
+_**"It's your life-but only if you make it so."**_
 
-— Unknown
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
