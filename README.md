@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's your life-but only if you make it so."**_
+_**"The man who removes a mountain begins by carrying away small stones."**_
 
-— Eleanor Roosevelt
+— William Faulkner
 <!-- quote_end -->
 
 <br>
