@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The man who removes a mountain begins by carrying away small stones."**_
+_**"The pain of parting is nothing to the joy of meeting again."**_
 
-— William Faulkner
+— Charles Dickens
 <!-- quote_end -->
 
 <br>
