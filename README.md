@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The pain of parting is nothing to the joy of meeting again."**_
+_**"It doesn't matter where you are coming from. All that matters is where you are going. "**_
 
-— Charles Dickens
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
