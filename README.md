@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It doesn't matter where you are coming from. All that matters is where you are going. "**_
+_**"You don't need a weatherman to know which way the wind blows."**_
 
-— Brian Tracy
+— Bob Dylan
 <!-- quote_end -->
 
 <br>
