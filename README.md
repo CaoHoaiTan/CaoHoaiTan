@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Admire as much as you can. Most people do not admire enough."**_
+_**"The world doesn't always give you want, but it often gives you what you need."**_
 
-— Vincent van Gogh
+— Naval Ravikant
 <!-- quote_end -->
 
 <br>
