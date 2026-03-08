@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The world doesn't always give you want, but it often gives you what you need."**_
+_**"Everything flows, nothing stands still."**_
 
-— Naval Ravikant
+— Heraclitus
 <!-- quote_end -->
 
 <br>
