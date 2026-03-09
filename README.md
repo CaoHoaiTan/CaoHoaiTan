@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everything flows, nothing stands still."**_
+_**"You'll see it when you believe it. "**_
 
-— Heraclitus
+— Wayne Dyer
 <!-- quote_end -->
 
 <br>
