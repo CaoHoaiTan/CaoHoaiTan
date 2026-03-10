@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You'll see it when you believe it. "**_
+_**"We can spend our whole lives escaping from the monsters of our minds."**_
 
-— Wayne Dyer
+— Pema Chodron
 <!-- quote_end -->
 
 <br>
