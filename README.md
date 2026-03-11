@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We can spend our whole lives escaping from the monsters of our minds."**_
+_**"We cannot change anything unless we accept it."**_
 
-— Pema Chodron
+— Carl Jung
 <!-- quote_end -->
 
 <br>
