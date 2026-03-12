@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We cannot change anything unless we accept it."**_
+_**"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."**_
 
-— Carl Jung
+— Criss Jami
 <!-- quote_end -->
 
 <br>
