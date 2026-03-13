@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."**_
+_**"The best fighter is never angry."**_
 
-— Criss Jami
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
