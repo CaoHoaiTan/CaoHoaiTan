@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The best fighter is never angry."**_
+_**"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."**_
 
-— Lao Tzu
+— Alfred Adler
 <!-- quote_end -->
 
 <br>
