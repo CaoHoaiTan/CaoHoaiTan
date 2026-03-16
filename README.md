@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."**_
+_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
 
-— Peter Drucker
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
