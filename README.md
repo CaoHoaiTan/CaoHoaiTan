@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
+_**"Your happiness is what truly matters most. Do what you have to do in order to be happy."**_
 
-— Emily Dickinson
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
