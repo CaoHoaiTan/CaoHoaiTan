@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your happiness is what truly matters most. Do what you have to do in order to be happy."**_
+_**"Giving back involves a certain amount of giving up."**_
 
-— Brian Tracy
+— Colin Powell
 <!-- quote_end -->
 
 <br>
