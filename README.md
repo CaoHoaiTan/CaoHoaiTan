@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Giving back involves a certain amount of giving up."**_
+_**"Be fascinated instead of frustrated."**_
 
-— Colin Powell
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
