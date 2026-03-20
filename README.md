@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Be fascinated instead of frustrated."**_
+_**"Simple words, repeated daily, can change your life."**_
 
-— Jim Rohn
+— Maxime Lagace
 <!-- quote_end -->
 
 <br>
