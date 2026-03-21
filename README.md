@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Simple words, repeated daily, can change your life."**_
+_**"Life is what you make it. Always has been, always will be."**_
 
-— Maxime Lagace
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
