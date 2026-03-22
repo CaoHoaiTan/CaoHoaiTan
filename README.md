@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is what you make it. Always has been, always will be."**_
+_**"Excellence is not an exception, it is a prevailing attitude."**_
 
-— Eleanor Roosevelt
+— Colin Powell
 <!-- quote_end -->
 
 <br>
