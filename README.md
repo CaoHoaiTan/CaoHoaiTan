@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Excellence is not an exception, it is a prevailing attitude."**_
+_**"You are now, and you do become, what you think about."**_
 
-— Colin Powell
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
