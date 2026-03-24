@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are now, and you do become, what you think about."**_
+_**"It's easier to lose than to win.  "**_
 
-— Earl Nightingale
+— Wayne Gretzky
 <!-- quote_end -->
 
 <br>
