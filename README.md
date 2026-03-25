@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's easier to lose than to win.  "**_
+_**"Everything you've ever wanted is on the other side of fear."**_
 
-— Wayne Gretzky
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
