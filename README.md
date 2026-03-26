@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everything you've ever wanted is on the other side of fear."**_
+_**"Write to help yourself, publish to help others."**_
 
-— Brian Tracy
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
