@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Write to help yourself, publish to help others."**_
+_**"Confidence is what you have before you understand the problem."**_
 
-— Jack Butcher
+— Woody Allen
 <!-- quote_end -->
 
 <br>
