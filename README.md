@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Confidence is what you have before you understand the problem."**_
+_**"Intense love does not measure, it just gives."**_
 
-— Woody Allen
+— Mother Teresa
 <!-- quote_end -->
 
 <br>
