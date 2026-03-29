@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Intense love does not measure, it just gives."**_
+_**"Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."**_
 
-— Mother Teresa
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
