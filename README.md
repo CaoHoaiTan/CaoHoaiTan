@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."**_
+_**"Success is about creating value."**_
 
-— Brian Tracy
+— Candice Carpenter
 <!-- quote_end -->
 
 <br>
