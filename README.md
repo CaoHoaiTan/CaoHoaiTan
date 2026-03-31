@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Success is about creating value."**_
+_**"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in."**_
 
-— Candice Carpenter
+— Virginia Woolf
 <!-- quote_end -->
 
 <br>
