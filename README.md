@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in."**_
+_**"It's not the men in your life that matters, it's the life in your men."**_
 
-— Virginia Woolf
+— Mae West
 <!-- quote_end -->
 
 <br>
