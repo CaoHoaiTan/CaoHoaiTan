@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's not the men in your life that matters, it's the life in your men."**_
+_**"If I can laugh, I can live."**_
 
-— Mae West
+— Christopher Reeve
 <!-- quote_end -->
 
 <br>
