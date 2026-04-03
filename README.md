@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If I can laugh, I can live."**_
+_**"Ideas do not reach perfection in a day, no matter how much study is put upon them."**_
 
-— Christopher Reeve
+— Alexander Graham Bell
 <!-- quote_end -->
 
 <br>
