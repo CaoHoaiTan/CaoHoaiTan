@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Ideas do not reach perfection in a day, no matter how much study is put upon them."**_
+_**"Everybody needs a passion. That's what keeps life interesting."**_
 
-— Alexander Graham Bell
+— Betty White
 <!-- quote_end -->
 
 <br>
