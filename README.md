@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everybody needs a passion. That's what keeps life interesting."**_
+_**"If you are going to achieve excellence in big things, you develop the habit in little matters."**_
 
-— Betty White
+— Colin Powell
 <!-- quote_end -->
 
 <br>
