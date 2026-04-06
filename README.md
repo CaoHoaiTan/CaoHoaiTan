@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you are going to achieve excellence in big things, you develop the habit in little matters."**_
+_**"Don't wish it were easier, wish you were better."**_
 
-— Colin Powell
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
