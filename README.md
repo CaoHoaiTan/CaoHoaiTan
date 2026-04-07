@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't wish it were easier, wish you were better."**_
+_**"Your gift is something that you can do innately better than anything else."**_
 
-— Jim Rohn
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
