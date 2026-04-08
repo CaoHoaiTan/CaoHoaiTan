@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your gift is something that you can do innately better than anything else."**_
+_**"It's OK to have your eggs in one basket as long as you control what happens to that basket."**_
 
-— Steve Harvey
+— Elon Musk
 <!-- quote_end -->
 
 <br>
