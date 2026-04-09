@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's OK to have your eggs in one basket as long as you control what happens to that basket."**_
+_**"The greatest treasures are those invisible to the eye but found by the heart."**_
 
-— Elon Musk
+— Judy Garland
 <!-- quote_end -->
 
 <br>
