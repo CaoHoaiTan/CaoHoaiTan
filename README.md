@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The greatest treasures are those invisible to the eye but found by the heart."**_
+_**"He who wishes to be obeyed must know how to command."**_
 
-— Judy Garland
+— Niccolo Machiavelli
 <!-- quote_end -->
 
 <br>
