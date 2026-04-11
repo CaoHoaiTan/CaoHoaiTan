@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"He who wishes to be obeyed must know how to command."**_
+_**"I can live without money, but I cannot live without love."**_
 
-— Niccolo Machiavelli
+— Judy Garland
 <!-- quote_end -->
 
 <br>
