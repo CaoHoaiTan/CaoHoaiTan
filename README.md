@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I can live without money, but I cannot live without love."**_
+_**"Enjoy life. There's plenty of time to be dead."**_
 
-— Judy Garland
+— Hans Christian Andersen
 <!-- quote_end -->
 
 <br>
