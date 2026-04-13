@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Enjoy life. There's plenty of time to be dead."**_
+_**"A mistake is only an error, it becomes a mistake when you fail to correct it."**_
 
-— Hans Christian Andersen
+— John Lennon
 <!-- quote_end -->
 
 <br>
