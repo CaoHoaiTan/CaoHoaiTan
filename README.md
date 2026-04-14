@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A mistake is only an error, it becomes a mistake when you fail to correct it."**_
+_**"Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."**_
 
-— John Lennon
+— Ralph Marston
 <!-- quote_end -->
 
 <br>
