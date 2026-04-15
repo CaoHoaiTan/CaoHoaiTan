@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."**_
+_**"Truth is such a rare thing, it is delighted to tell it."**_
 
-— Ralph Marston
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
