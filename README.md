@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Respect was invented to cover the empty place where love should be."**_
+_**"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine."**_
 
-— Leo Tolstoy
+— G.I. Gurdjieff
 <!-- quote_end -->
 
 <br>
