@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine."**_
+_**"Still your waters."**_
 
-— G.I. Gurdjieff
+— Josh Waitzkin
 <!-- quote_end -->
 
 <br>
