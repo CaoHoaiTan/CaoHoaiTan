@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Still your waters."**_
+_**"If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere."**_
 
-— Josh Waitzkin
+— Zig Ziglar
 <!-- quote_end -->
 
 <br>
