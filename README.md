@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere."**_
+_**"Freedom lies in being bold."**_
 
-— Zig Ziglar
+— Robert Frost
 <!-- quote_end -->
 
 <br>
