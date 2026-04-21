@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Freedom lies in being bold."**_
+_**"Your heart is the size of an ocean. Go find yourself in its hidden depths."**_
 
-— Robert Frost
+— Rumi
 <!-- quote_end -->
 
 <br>
