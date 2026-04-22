@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your heart is the size of an ocean. Go find yourself in its hidden depths."**_
+_**"When you judge another, you do not define them, you define yourself"**_
 
-— Rumi
+— Wayne Dyer
 <!-- quote_end -->
 
 <br>
