@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you judge another, you do not define them, you define yourself"**_
+_**"The only reason to be alive is to enjoy it."**_
 
-— Wayne Dyer
+— Rita Mae Brown
 <!-- quote_end -->
 
 <br>
