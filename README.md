@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The only reason to be alive is to enjoy it."**_
+_**"You can't get to a place that you don't believe exists."**_
 
-— Rita Mae Brown
+— Unknown
 <!-- quote_end -->
 
 <br>
