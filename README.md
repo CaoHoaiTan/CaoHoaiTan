@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You can't get to a place that you don't believe exists."**_
+_**"Even if you persuade me, you won't persuade me."**_
 
-— Unknown
+— Aristophanes
 <!-- quote_end -->
 
 <br>
