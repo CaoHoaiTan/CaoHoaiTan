@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Even if you persuade me, you won't persuade me."**_
+_**"In the middle of difficulty lies opportunity."**_
 
-— Aristophanes
+— Albert Einstein
 <!-- quote_end -->
 
 <br>
