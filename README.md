@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"In the middle of difficulty lies opportunity."**_
+_**"I'm an optimist by choice not by stupidity."**_
 
-— Albert Einstein
+— Yanni
 <!-- quote_end -->
 
 <br>
