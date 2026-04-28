@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I'm an optimist by choice not by stupidity."**_
+_**"Self-knowledge is the beginning of self-correction."**_
 
-— Yanni
+— Norman Vincent Peale
 <!-- quote_end -->
 
 <br>
