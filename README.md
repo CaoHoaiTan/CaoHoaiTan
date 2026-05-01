@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Those who cannot change their minds cannot change anything."**_
+_**"Duty makes us do things well, but love makes us do them beautifully.  "**_
 
-— George Bernard Shaw
+— Zig Ziglar
 <!-- quote_end -->
 
 <br>
