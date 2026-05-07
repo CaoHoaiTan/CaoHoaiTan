@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If what you're doing is not your passion, you have nothing to lose."**_
+_**"It's the possibility of having a dream come true that makes life interesting."**_
 
-— Celestine Chua
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
