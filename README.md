@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"20 percent of your activities will account for 80 percent of your results."**_
+_**"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."**_
 
-— Brian Tracy
+— Zig Ziglar
 <!-- quote_end -->
 
 <br>
