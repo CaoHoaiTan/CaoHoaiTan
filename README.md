@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The majority of what you want will come from the minority of what you do."**_
+_**"We don't stop playing because we grow old; we grow old because we stop playing."**_
 
-— Gary Keller
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
