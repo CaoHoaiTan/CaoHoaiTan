@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No matter what happens, always be yourself."**_
+_**"Progress comes to those who train and train; reliance on secret techniques will get you nowhere."**_
 
-— Dale Carnegie
+— Morihei Ueshiba
 <!-- quote_end -->
 
 <br>
