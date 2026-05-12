@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Genius is one percent inspiration and ninety-nine percent perspiration."**_
+_**"Thinking is difficult, that's why most people judge."**_
 
-— Thomas Edison
+— Carl Jung
 <!-- quote_end -->
 
 <br>
