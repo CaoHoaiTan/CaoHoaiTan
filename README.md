@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It all depends on what you choose to believe."**_
+_**"We are all self-made, but only the successful will admit it."**_
 
-— Spencer Johnson
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
