@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all self-made, but only the successful will admit it."**_
+_**"Animals don't hate, and we're supposed to be better than them."**_
 
-— Earl Nightingale
+— Elvis Presley
 <!-- quote_end -->
 
 <br>
