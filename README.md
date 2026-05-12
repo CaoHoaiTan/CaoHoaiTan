@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is no sadder sight than a young pessimist."**_
+_**"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."**_
 
-— Mark Twain
+— Elbert Hubbard
 <!-- quote_end -->
 
 <br>
