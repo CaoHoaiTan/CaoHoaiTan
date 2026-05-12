@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing."**_
+_**"No matter what happens, always be yourself."**_
 
-— George Bernard Shaw
+— Dale Carnegie
 <!-- quote_end -->
 
 <br>
