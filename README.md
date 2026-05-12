@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Progress comes to those who train and train; reliance on secret techniques will get you nowhere."**_
+_**"It all depends on what you choose to believe."**_
 
-— Morihei Ueshiba
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
