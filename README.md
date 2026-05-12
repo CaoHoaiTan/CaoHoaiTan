@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Thinking is difficult, that's why most people judge."**_
+_**"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing."**_
 
-— Carl Jung
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
