@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No matter what happens, always be yourself."**_
+_**"The attempt to escape from pain, is what creates more pain."**_
 
-— Dale Carnegie
+— Gabor Mate
 <!-- quote_end -->
 
 <br>
