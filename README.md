@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The busy man is never wise and the wise man is never busy."**_
+_**"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."**_
 
-— Lin Yutang
+— Wayne Gretzky
 <!-- quote_end -->
 
 <br>
