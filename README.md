@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."**_
+_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
 
-— Andrew Carnegie
+— Henry David Thoreau
 <!-- quote_end -->
 
 <br>
