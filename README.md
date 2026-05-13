@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The busy man is never wise and the wise man is never busy."**_
+_**"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."**_
 
-— Lin Yutang
+— Dan Millman
 <!-- quote_end -->
 
 <br>
