@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If I cannot do great things. I can do small things in a great way."**_
+_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
 
-— Martin Luther King, Jr.
+— Henry David Thoreau
 <!-- quote_end -->
 
 <br>
