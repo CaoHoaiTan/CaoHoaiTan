@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's not whether you get knocked down, its whether you get back up."**_
+_**"If I cannot do great things. I can do small things in a great way."**_
 
-— Vince Lombardi
+— Martin Luther King, Jr.
 <!-- quote_end -->
 
 <br>
