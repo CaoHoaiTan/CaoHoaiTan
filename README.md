@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you want to see things just as they are, then you yourself must practice just as you are."**_
+_**"The attempt to escape from pain, is what creates more pain."**_
 
-— Dogen
+— Gabor Mate
 <!-- quote_end -->
 
 <br>
