@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The attempt to escape from pain, is what creates more pain."**_
+_**"The busy man is never wise and the wise man is never busy."**_
 
-— Gabor Mate
+— Lin Yutang
 <!-- quote_end -->
 
 <br>
