@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"He who cheats the earth will be cheated by the earth."**_
+_**"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."**_
 
-— Chinese Proverb
+— Dan Millman
 <!-- quote_end -->
 
 <br>
