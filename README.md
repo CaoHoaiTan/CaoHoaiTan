@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."**_
+_**"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."**_
 
-— Wayne Gretzky
+— Dan Millman
 <!-- quote_end -->
 
 <br>
