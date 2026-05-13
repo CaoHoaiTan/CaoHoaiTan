@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
+_**"He who cheats the earth will be cheated by the earth."**_
 
-— Henry David Thoreau
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
