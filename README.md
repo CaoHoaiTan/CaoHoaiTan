@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."**_
+_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
 
-— Dan Millman
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
