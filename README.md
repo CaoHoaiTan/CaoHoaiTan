@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It all depends on what you choose to believe."**_
+_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
 
-— Spencer Johnson
+— Nicolas Chamfort
 <!-- quote_end -->
 
 <br>
