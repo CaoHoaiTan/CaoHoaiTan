@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."**_
+_**"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day."**_
 
-— Elbert Hubbard
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
