@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
+_**"The busy man is never wise and the wise man is never busy."**_
 
-— Henry David Thoreau
+— Lin Yutang
 <!-- quote_end -->
 
 <br>
