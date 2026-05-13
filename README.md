@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The attempt to escape from pain, is what creates more pain."**_
+_**"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."**_
 
-— Gabor Mate
+— Andrew Carnegie
 <!-- quote_end -->
 
 <br>
