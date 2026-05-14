@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's not whether you get knocked down, its whether you get back up."**_
+_**"Not all those who wander are lost."**_
 
-— Vince Lombardi
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
