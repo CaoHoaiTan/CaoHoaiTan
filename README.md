@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Genius is one percent inspiration and ninety-nine percent perspiration."**_
+_**"Life is like stepping onto a boat which is about to sail out to sea and sink."**_
 
-— Thomas Edison
+— Shunryu Suzuki
 <!-- quote_end -->
 
 <br>
