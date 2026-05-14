@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A zen master's life is one continuous mistake."**_
+_**"Animals don't hate, and we're supposed to be better than them."**_
 
-— Dogen
+— Elvis Presley
 <!-- quote_end -->
 
 <br>
