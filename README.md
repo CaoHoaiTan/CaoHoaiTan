@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is like stepping onto a boat which is about to sail out to sea and sink."**_
+_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
 
-— Shunryu Suzuki
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
