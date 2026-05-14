@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
+_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
 
-— Benjamin Franklin
+— Henry David Thoreau
 <!-- quote_end -->
 
 <br>
