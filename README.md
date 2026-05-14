@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You play the hand you're dealt. I think the game's worthwhile.  "**_
+_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
 
-— Christopher Reeve
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
