@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day."**_
+_**"To be totally at leisure for one day is to be immortal for one day. "**_
 
-— Paulo Coelho
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
