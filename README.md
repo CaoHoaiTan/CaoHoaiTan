@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Not all those who wander are lost."**_
+_**"To be totally at leisure for one day is to be immortal for one day. "**_
 
-— J.R.R. Tolkien
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
