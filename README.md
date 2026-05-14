@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."**_
+_**"You play the hand you're dealt. I think the game's worthwhile.  "**_
 
-— Margaret Mead
+— Christopher Reeve
 <!-- quote_end -->
 
 <br>
