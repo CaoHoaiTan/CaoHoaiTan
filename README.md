@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
+_**"We are all self-made, but only the successful will admit it."**_
 
-— Emily Dickinson
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
