@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Not all those who wander are lost."**_
+_**"Life is like stepping onto a boat which is about to sail out to sea and sink."**_
 
-— J.R.R. Tolkien
+— Shunryu Suzuki
 <!-- quote_end -->
 
 <br>
