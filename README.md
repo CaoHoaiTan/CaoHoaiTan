@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Animals don't hate, and we're supposed to be better than them."**_
+_**"It's not whether you get knocked down, its whether you get back up."**_
 
-— Elvis Presley
+— Vince Lombardi
 <!-- quote_end -->
 
 <br>
