@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Growth is in a series of mistakes. That's the only way you learn."**_
+_**"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."**_
 
-— Steve Harvey
+— Margaret Mead
 <!-- quote_end -->
 
 <br>
