@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
+_**"A zen master's life is one continuous mistake."**_
 
-— Nicolas Chamfort
+— Dogen
 <!-- quote_end -->
 
 <br>
