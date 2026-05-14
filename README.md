@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all self-made, but only the successful will admit it."**_
+_**"Not all those who wander are lost."**_
 
-— Earl Nightingale
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
