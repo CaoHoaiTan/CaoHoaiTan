@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Go confidently in the direction of your dreams! Live the life you've imagined."**_
+_**"A zen master's life is one continuous mistake."**_
 
-— Henry David Thoreau
+— Dogen
 <!-- quote_end -->
 
 <br>
