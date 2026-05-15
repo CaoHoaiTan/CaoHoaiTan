@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today."**_
+_**"We are all self-made, but only the successful will admit it."**_
 
-— Andrew Carnegie
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
