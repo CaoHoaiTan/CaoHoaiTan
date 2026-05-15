@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
+_**"The world is a puzzle; no need to make sense out of it."**_
 
-— Paramahansa Yogananda
+— Socrates
 <!-- quote_end -->
 
 <br>
