@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you want to see things just as they are, then you yourself must practice just as you are."**_
+_**"Not all those who wander are lost."**_
 
-— Dogen
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
