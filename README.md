@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
+_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
 
-— Nicolas Chamfort
+— Paramahansa Yogananda
 <!-- quote_end -->
 
 <br>
