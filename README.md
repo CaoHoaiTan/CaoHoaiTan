@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"He who cheats the earth will be cheated by the earth."**_
+_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
 
-— Chinese Proverb
+— Nicolas Chamfort
 <!-- quote_end -->
 
 <br>
