@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
+_**"If I cannot do great things. I can do small things in a great way."**_
 
-— Paramahansa Yogananda
+— Martin Luther King, Jr.
 <!-- quote_end -->
 
 <br>
