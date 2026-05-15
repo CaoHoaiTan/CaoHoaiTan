@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
+_**"It's the job that's never started that takes the longest to finish."**_
 
-— George Eliot
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
