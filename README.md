@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The world is a puzzle; no need to make sense out of it."**_
+_**"No matter what happens, always be yourself."**_
 
-— Socrates
+— Dale Carnegie
 <!-- quote_end -->
 
 <br>
