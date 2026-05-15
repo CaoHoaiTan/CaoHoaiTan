@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It's the job that's never started that takes the longest to finish."**_
+_**"The busy man is never wise and the wise man is never busy."**_
 
-— J.R.R. Tolkien
+— Lin Yutang
 <!-- quote_end -->
 
 <br>
