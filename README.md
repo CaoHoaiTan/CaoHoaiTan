@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The world is a puzzle; no need to make sense out of it."**_
+_**"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."**_
 
-— Socrates
+— Wayne Gretzky
 <!-- quote_end -->
 
 <br>
