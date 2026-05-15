@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."**_
+_**"He who cheats the earth will be cheated by the earth."**_
 
-— Andrew Carnegie
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
