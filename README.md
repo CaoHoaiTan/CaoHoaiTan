@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are willing to believe anything other than the truth."**_
+_**"The world is a puzzle; no need to make sense out of it."**_
 
-— Carlos Ruiz Zafon
+— Socrates
 <!-- quote_end -->
 
 <br>
