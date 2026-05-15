@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing."**_
+_**"If you want to see things just as they are, then you yourself must practice just as you are."**_
 
-— George Bernard Shaw
+— Dogen
 <!-- quote_end -->
 
 <br>
