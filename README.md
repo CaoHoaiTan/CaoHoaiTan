@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To be totally at leisure for one day is to be immortal for one day. "**_
+_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
 
-— Chinese Proverb
+— George Eliot
 <!-- quote_end -->
 
 <br>
