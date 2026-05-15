@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The busy man is never wise and the wise man is never busy."**_
+_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
 
-— Lin Yutang
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
