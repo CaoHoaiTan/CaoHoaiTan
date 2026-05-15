@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If I cannot do great things. I can do small things in a great way."**_
+_**"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing."**_
 
-— Martin Luther King, Jr.
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
