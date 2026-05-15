@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all self-made, but only the successful will admit it."**_
+_**"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."**_
 
-— Earl Nightingale
+— Andrew Carnegie
 <!-- quote_end -->
 
 <br>
