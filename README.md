@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Not all those who wander are lost."**_
+_**"We are willing to believe anything other than the truth."**_
 
-— J.R.R. Tolkien
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
