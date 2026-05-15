@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."**_
+_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
 
-— Wayne Gretzky
+— Paramahansa Yogananda
 <!-- quote_end -->
 
 <br>
