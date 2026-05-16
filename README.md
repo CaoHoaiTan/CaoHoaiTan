@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing."**_
+_**"The search for happiness is one of the chief sources of unhappiness."**_
 
-— George Bernard Shaw
+— Eric Hoffer
 <!-- quote_end -->
 
 <br>
