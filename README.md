@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The search for happiness is one of the chief sources of unhappiness."**_
+_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
 
-— Eric Hoffer
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
