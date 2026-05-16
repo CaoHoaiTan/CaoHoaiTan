@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Where violence reigns, reason is weak."**_
+_**"The busy man is never wise and the wise man is never busy."**_
 
-— Nicolas Chamfort
+— Lin Yutang
 <!-- quote_end -->
 
 <br>
