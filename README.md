@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No matter what happens, always be yourself."**_
+_**"Worry is a waste of emotional reserve."**_
 
-— Dale Carnegie
+— Ayn Rand
 <!-- quote_end -->
 
 <br>
