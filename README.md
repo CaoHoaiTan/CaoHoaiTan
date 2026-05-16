@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It all depends on what you choose to believe."**_
+_**"We are willing to believe anything other than the truth."**_
 
-— Spencer Johnson
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
