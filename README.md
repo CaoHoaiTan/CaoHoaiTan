@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A zen master's life is one continuous mistake."**_
+_**"Do not bite at the bait of pleasure, till you know there is no hook beneath it."**_
 
-— Dogen
+— Thomas Jefferson
 <!-- quote_end -->
 
 <br>
