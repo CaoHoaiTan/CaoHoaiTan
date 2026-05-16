@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Becoming a great leader doesn't mean being perfect. it means living with your imperfections."**_
+_**"If you want to see things just as they are, then you yourself must practice just as you are."**_
 
-— Lolly Daskal
+— Dogen
 <!-- quote_end -->
 
 <br>
