@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do not bite at the bait of pleasure, till you know there is no hook beneath it."**_
+_**"We are all self-made, but only the successful will admit it."**_
 
-— Thomas Jefferson
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
