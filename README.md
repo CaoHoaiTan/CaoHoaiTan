@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are willing to believe anything other than the truth."**_
+_**"Where violence reigns, reason is weak."**_
 
-— Carlos Ruiz Zafon
+— Nicolas Chamfort
 <!-- quote_end -->
 
 <br>
