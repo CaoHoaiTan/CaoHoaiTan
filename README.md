@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The attempt to escape from pain, is what creates more pain."**_
+_**"It's the job that's never started that takes the longest to finish."**_
 
-— Gabor Mate
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
