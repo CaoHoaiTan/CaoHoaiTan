@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are willing to believe anything other than the truth."**_
+_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
 
-— Carlos Ruiz Zafon
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
