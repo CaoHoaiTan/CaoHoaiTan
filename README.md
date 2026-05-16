@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"He who cheats the earth will be cheated by the earth."**_
+_**"A zen master's life is one continuous mistake."**_
 
-— Chinese Proverb
+— Dogen
 <!-- quote_end -->
 
 <br>
