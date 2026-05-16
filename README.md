@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you want to see things just as they are, then you yourself must practice just as you are."**_
+_**"Learn from the rejection and turn it into an opportunity!"**_
 
-— Dogen
+— Mary Engelbreit
 <!-- quote_end -->
 
 <br>
