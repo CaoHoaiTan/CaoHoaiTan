@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Learn from the rejection and turn it into an opportunity!"**_
+_**"He who cheats the earth will be cheated by the earth."**_
 
-— Mary Engelbreit
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
