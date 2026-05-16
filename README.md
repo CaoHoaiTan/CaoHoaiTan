@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Worry is a waste of emotional reserve."**_
+_**"It all depends on what you choose to believe."**_
 
-— Ayn Rand
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
