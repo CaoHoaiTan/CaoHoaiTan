@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
+_**"We are willing to believe anything other than the truth."**_
 
-— Emily Dickinson
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
