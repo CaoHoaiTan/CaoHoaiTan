@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The search for happiness is one of the chief sources of unhappiness."**_
+_**"Learn from the rejection and turn it into an opportunity!"**_
 
-— Eric Hoffer
+— Mary Engelbreit
 <!-- quote_end -->
 
 <br>
