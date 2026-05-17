@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
+_**"To be totally at leisure for one day is to be immortal for one day. "**_
 
-— Emily Dickinson
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
