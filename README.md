@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."**_
+_**"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."**_
 
-— Dan Millman
+— Elbert Hubbard
 <!-- quote_end -->
 
 <br>
