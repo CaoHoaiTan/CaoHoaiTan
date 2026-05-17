@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Becoming a great leader doesn't mean being perfect. it means living with your imperfections."**_
+_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
 
-— Lolly Daskal
+— George Eliot
 <!-- quote_end -->
 
 <br>
