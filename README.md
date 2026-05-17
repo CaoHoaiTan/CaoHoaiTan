@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
+_**"The search for happiness is one of the chief sources of unhappiness."**_
 
-— George Eliot
+— Eric Hoffer
 <!-- quote_end -->
 
 <br>
