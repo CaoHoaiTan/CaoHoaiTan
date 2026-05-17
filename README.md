@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It all depends on what you choose to believe."**_
+_**"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day."**_
 
-— Spencer Johnson
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
