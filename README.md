@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
+_**"It all depends on what you choose to believe."**_
 
-— Benjamin Franklin
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
