@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To be totally at leisure for one day is to be immortal for one day. "**_
+_**"Learn from the rejection and turn it into an opportunity!"**_
 
-— Chinese Proverb
+— Mary Engelbreit
 <!-- quote_end -->
 
 <br>
