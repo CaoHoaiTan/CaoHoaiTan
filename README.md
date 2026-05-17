@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Worry is a waste of emotional reserve."**_
+_**"Being ignorant is not so much a shame, as being unwilling to learn."**_
 
-— Ayn Rand
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
