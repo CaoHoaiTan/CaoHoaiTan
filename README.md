@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day."**_
+_**"Growth is in a series of mistakes. That's the only way you learn."**_
 
-— Paulo Coelho
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
