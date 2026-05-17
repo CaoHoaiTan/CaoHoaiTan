@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The person who never made a mistake never tried anything new."**_
+_**"Life is a long lesson in humility. "**_
 
-— Albert Einstein
+— James Matthew Barrie
 <!-- quote_end -->
 
 <br>
