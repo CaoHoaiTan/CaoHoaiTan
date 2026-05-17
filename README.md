@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
+_**"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."**_
 
-— George Eliot
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
