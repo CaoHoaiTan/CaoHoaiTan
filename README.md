@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."**_
+_**"Growth is in a series of mistakes. That's the only way you learn."**_
 
-— Elbert Hubbard
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
