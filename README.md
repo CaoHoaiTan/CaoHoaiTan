@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The attempt to escape from pain, is what creates more pain."**_
+_**"The person who never made a mistake never tried anything new."**_
 
-— Gabor Mate
+— Albert Einstein
 <!-- quote_end -->
 
 <br>
