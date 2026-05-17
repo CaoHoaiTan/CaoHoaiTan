@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Progress comes to those who train and train; reliance on secret techniques will get you nowhere."**_
+_**"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."**_
 
-— Morihei Ueshiba
+— George Eliot
 <!-- quote_end -->
 
 <br>
