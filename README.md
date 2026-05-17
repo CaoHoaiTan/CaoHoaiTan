@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Learn from the rejection and turn it into an opportunity!"**_
+_**"The attempt to escape from pain, is what creates more pain."**_
 
-— Mary Engelbreit
+— Gabor Mate
 <!-- quote_end -->
 
 <br>
