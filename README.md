@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is a long lesson in humility. "**_
+_**"Progress comes to those who train and train; reliance on secret techniques will get you nowhere."**_
 
-— James Matthew Barrie
+— Morihei Ueshiba
 <!-- quote_end -->
 
 <br>
