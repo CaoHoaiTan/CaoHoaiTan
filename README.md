@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Growth is in a series of mistakes. That's the only way you learn."**_
+_**"Worry is a waste of emotional reserve."**_
 
-— Steve Harvey
+— Ayn Rand
 <!-- quote_end -->
 
 <br>
