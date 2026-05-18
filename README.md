@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It doesn't matter where you are, you are nowhere compared to where you can go."**_
+_**"You don't have to control your thoughts; you just have to stop letting them control you."**_
 
-— Bob Proctor
+— Dan Millman
 <!-- quote_end -->
 
 <br>
