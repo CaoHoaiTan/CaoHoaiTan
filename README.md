@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You can't go forward and backwards at the same time."**_
+_**"Only by acceptance of the past, can you alter it."**_
 
-— Steve Harvey
+— T.S. Eliot
 <!-- quote_end -->
 
 <br>
