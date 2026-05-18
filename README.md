@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Many of life's failures are people who did not realize how close they were to success when they gave up."**_
+_**"You can't go forward and backwards at the same time."**_
 
-— Thomas Edison
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
