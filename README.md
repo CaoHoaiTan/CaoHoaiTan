@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Becoming a great leader doesn't mean being perfect. it means living with your imperfections."**_
+_**"Growth is in a series of mistakes. That's the only way you learn."**_
 
-— Lolly Daskal
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
