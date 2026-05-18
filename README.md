@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Becoming a great leader doesn't mean being perfect. it means living with your imperfections."**_
+_**"Do not bite at the bait of pleasure, till you know there is no hook beneath it."**_
 
-— Lolly Daskal
+— Thomas Jefferson
 <!-- quote_end -->
 
 <br>
