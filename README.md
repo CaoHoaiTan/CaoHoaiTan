@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To live is the rarest thing in the world. Most people exist, that is all. "**_
+_**"It is not the knowing that is difficult, but the doing. "**_
 
-— Oscar Wilde
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
