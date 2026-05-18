@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You don't have to control your thoughts; you just have to stop letting them control you."**_
+_**"To live is the rarest thing in the world. Most people exist, that is all. "**_
 
-— Dan Millman
+— Oscar Wilde
 <!-- quote_end -->
 
 <br>
