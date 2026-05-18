@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everyone you admire was once a beginner."**_
+_**"Without the rain there would be no rainbow."**_
 
-— Jack Butcher
+— Gilbert Chesterton
 <!-- quote_end -->
 
 <br>
