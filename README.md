@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It is not the knowing that is difficult, but the doing. "**_
+_**"Many of life's failures are people who did not realize how close they were to success when they gave up."**_
 
-— Chinese Proverb
+— Thomas Edison
 <!-- quote_end -->
 
 <br>
