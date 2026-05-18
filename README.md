@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Common sense is not so common. "**_
+_**"Everyone you admire was once a beginner."**_
 
-— Voltaire
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
