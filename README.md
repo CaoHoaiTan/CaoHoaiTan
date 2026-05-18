@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do not bite at the bait of pleasure, till you know there is no hook beneath it."**_
+_**"It all depends on what you choose to believe."**_
 
-— Thomas Jefferson
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
