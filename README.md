@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Learn from the rejection and turn it into an opportunity!"**_
+_**"Becoming a great leader doesn't mean being perfect. it means living with your imperfections."**_
 
-— Mary Engelbreit
+— Lolly Daskal
 <!-- quote_end -->
 
 <br>
