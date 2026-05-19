@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do one thing every day that scares you."**_
+_**"When you consider things like the stars, our affairs don't seem to matter very much, do they?"**_
 
-— Eleanor Roosevelt
+— Virginia Woolf
 <!-- quote_end -->
 
 <br>
