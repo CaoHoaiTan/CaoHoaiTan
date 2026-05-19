@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you consider things like the stars, our affairs don't seem to matter very much, do they?"**_
+_**"Doing what you love is the cornerstone of having abundance in your life. "**_
 
-— Virginia Woolf
+— Wayne Dyer
 <!-- quote_end -->
 
 <br>
