@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A wise man will be master of his mind, a fool will be its slave."**_
+_**"May you find grace as you surrender to life. May you find happiness, as you stop seeking it."**_
 
-— Publilius Syrus
+— Dan Millman
 <!-- quote_end -->
 
 <br>
