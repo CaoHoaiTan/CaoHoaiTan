@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Doing what you love is the cornerstone of having abundance in your life. "**_
+_**"What loneliness is more lonely than distrust?"**_
 
-— Wayne Dyer
+— George Eliot
 <!-- quote_end -->
 
 <br>
