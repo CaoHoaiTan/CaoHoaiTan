@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do not ignore the passion that burns in you. Spend time to discover your gift."**_
+_**"Absence makes the heart grow fonder."**_
 
-— Steve Harvey
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
