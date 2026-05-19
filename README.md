@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I'm an optimist by choice not by stupidity."**_
+_**"Whatever your mind can conceive and believe, it can achieve."**_
 
-— Yanni
+— Napoleon Hill
 <!-- quote_end -->
 
 <br>
