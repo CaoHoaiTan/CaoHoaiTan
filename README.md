@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"What people say, what people do, and what they say they do are entirely different things. "**_
+_**"Gratitude is the fairest blossom which springs from the soul."**_
 
-— Margaret Mead
+— Henry Ward Beecher
 <!-- quote_end -->
 
 <br>
