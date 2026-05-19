@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Gratitude is the fairest blossom which springs from the soul."**_
+_**"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything."**_
 
-— Henry Ward Beecher
+— Paramahansa Yogananda
 <!-- quote_end -->
 
 <br>
