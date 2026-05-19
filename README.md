@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is like underwear, should be changed twice a day.  "**_
+_**"A wise man will be master of his mind, a fool will be its slave."**_
 
-— Ray Bradbury
+— Publilius Syrus
 <!-- quote_end -->
 
 <br>
