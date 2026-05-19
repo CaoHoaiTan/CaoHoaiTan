@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Whatever your mind can conceive and believe, it can achieve."**_
+_**"Do not ignore the passion that burns in you. Spend time to discover your gift."**_
 
-— Napoleon Hill
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
