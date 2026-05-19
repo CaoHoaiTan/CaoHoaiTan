@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"May you find grace as you surrender to life. May you find happiness, as you stop seeking it."**_
+_**"I'm an optimist by choice not by stupidity."**_
 
-— Dan Millman
+— Yanni
 <!-- quote_end -->
 
 <br>
