@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Only by acceptance of the past, can you alter it."**_
+_**"Life is like underwear, should be changed twice a day.  "**_
 
-— T.S. Eliot
+— Ray Bradbury
 <!-- quote_end -->
 
 <br>
