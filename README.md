@@ -1,5 +1,5 @@
 <!-- quote_start -->
-_**"Absence makes the heart grow fonder."**_
+_**"Do one thing every day that scares you."**_
 
 — Eleanor Roosevelt
 <!-- quote_end -->
