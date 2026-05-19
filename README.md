@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"What loneliness is more lonely than distrust?"**_
+_**"What people say, what people do, and what they say they do are entirely different things. "**_
 
-— George Eliot
+— Margaret Mead
 <!-- quote_end -->
 
 <br>
