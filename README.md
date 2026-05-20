@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything."**_
+_**"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."**_
 
-— Paramahansa Yogananda
+— Theodore Roosevelt
 <!-- quote_end -->
 
 <br>
