@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Opportunities multiply as they are seized."**_
+_**"Blessed is he who expects nothing, for he shall be disappointed."**_
 
-— Sun Tzu
+— Jonathan Swift
 <!-- quote_end -->
 
 <br>
