@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Blessed is he who expects nothing, for he shall be disappointed."**_
+_**"Little by little, one travels far."**_
 
-— Jonathan Swift
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
