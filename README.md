@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
+_**"Begin at once to live, and count each separate day as a separate life.  "**_
 
-— Nicolas Chamfort
+— Seneca
 <!-- quote_end -->
 
 <br>
