@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"**_
+_**"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."**_
 
-— Brian Tracy
+— Ming-Dao Deng
 <!-- quote_end -->
 
 <br>
