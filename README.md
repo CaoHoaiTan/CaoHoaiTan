@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Little by little, one travels far."**_
+_**"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."**_
 
-— J.R.R. Tolkien
+— Nicolas Chamfort
 <!-- quote_end -->
 
 <br>
