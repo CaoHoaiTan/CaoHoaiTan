@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Sometimes you have to shut your eyes, so you can see the real beauty."**_
+_**"Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."**_
 
-— Kilian Jornet
+— Socrates
 <!-- quote_end -->
 
 <br>
