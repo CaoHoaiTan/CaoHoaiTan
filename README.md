@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When something comes from within, when it is a part of you, you have no choice but to live it, to express it."**_
+_**"The attempt to escape from pain, is what creates more pain."**_
 
-— Kamal Ravikant
+— Gabor Mate
 <!-- quote_end -->
 
 <br>
