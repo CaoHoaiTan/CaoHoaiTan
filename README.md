@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The attempt to escape from pain, is what creates more pain."**_
+_**"You can only lose something that you have, but you cannot lose something that you are."**_
 
-— Gabor Mate
+— Eckhart Tolle
 <!-- quote_end -->
 
 <br>
