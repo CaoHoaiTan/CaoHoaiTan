@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is 10% what happens to you and 90% how you react to it. "**_
+_**"Anything becomes interesting if you look at it long enough.."**_
 
-— Charles Swindoll
+— Gustave Flaubert
 <!-- quote_end -->
 
 <br>
