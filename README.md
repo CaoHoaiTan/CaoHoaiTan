@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."**_
+_**"Sometimes you have to shut your eyes, so you can see the real beauty."**_
 
-— Theodore Roosevelt
+— Kilian Jornet
 <!-- quote_end -->
 
 <br>
