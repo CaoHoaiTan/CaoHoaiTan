@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You can only lose something that you have, but you cannot lose something that you are."**_
+_**"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"**_
 
-— Eckhart Tolle
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
