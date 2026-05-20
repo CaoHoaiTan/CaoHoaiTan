@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Nothing is more real than nothing."**_
+_**"Opportunities multiply as they are seized."**_
 
-— Samuel Beckett
+— Sun Tzu
 <!-- quote_end -->
 
 <br>
