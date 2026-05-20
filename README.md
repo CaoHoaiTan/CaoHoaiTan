@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Happiness is pretty simple: someone to love, something to do, something to look forward to."**_
+_**"Life is 10% what happens to you and 90% how you react to it. "**_
 
-— Rita Mae Brown
+— Charles Swindoll
 <!-- quote_end -->
 
 <br>
