@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."**_
+_**"Everything that is done in the world is done by hope."**_
 
-— Ming-Dao Deng
+— Martin Luther
 <!-- quote_end -->
 
 <br>
