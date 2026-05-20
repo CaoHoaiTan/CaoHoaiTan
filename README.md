@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Anything becomes interesting if you look at it long enough.."**_
+_**"Nothing is more real than nothing."**_
 
-— Gustave Flaubert
+— Samuel Beckett
 <!-- quote_end -->
 
 <br>
