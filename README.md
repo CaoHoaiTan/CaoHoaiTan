@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."**_
+_**"Happiness is pretty simple: someone to love, something to do, something to look forward to."**_
 
-— Socrates
+— Rita Mae Brown
 <!-- quote_end -->
 
 <br>
