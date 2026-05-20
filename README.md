@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Begin at once to live, and count each separate day as a separate life.  "**_
+_**"When something comes from within, when it is a part of you, you have no choice but to live it, to express it."**_
 
-— Seneca
+— Kamal Ravikant
 <!-- quote_end -->
 
 <br>
