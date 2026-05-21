@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When one door closes another door opens. "**_
+_**"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."**_
 
-— Alexander Graham Bell
+— Gurbaksh Chahal
 <!-- quote_end -->
 
 <br>
