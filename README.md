@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is about choice. You can choose to be a victim or anything else you like to be."**_
+_**"Do not believe that you will reach your destination without leaving the shore. "**_
 
-— Celestine Chua
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
