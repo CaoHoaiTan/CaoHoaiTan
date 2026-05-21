@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."**_
+_**"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."**_
 
-— Gurbaksh Chahal
+— Alfred Adler
 <!-- quote_end -->
 
 <br>
