@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The majority of what you want will come from the minority of what you do."**_
+_**"The successful warrior is the average man, with laser-like focus."**_
 
-— Gary Keller
+— Bruce Lee
 <!-- quote_end -->
 
 <br>
