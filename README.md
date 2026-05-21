@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To belittle, you have to be little."**_
+_**"It's much better to do good in a way that no one knows anything about it."**_
 
-— Kahlil Gibran
+— Leo Tolstoy
 <!-- quote_end -->
 
 <br>
