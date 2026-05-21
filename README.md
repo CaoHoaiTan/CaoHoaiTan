@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everything that is done in the world is done by hope."**_
+_**"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."**_
 
-— Martin Luther
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
