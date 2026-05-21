@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You have within you right now, everything you need to deal with whatever the world can throw at you."**_
+_**"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."**_
 
-— Brian Tracy
+— Sonia Ricotti
 <!-- quote_end -->
 
 <br>
