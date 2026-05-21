@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The successful warrior is the average man, with laser-like focus."**_
+_**"Words have no power to impress the mind without the exquisite horror of their reality."**_
 
-— Bruce Lee
+— Edgar Allan Poe
 <!-- quote_end -->
 
 <br>
