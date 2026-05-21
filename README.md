@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Someday death will take us to another star."**_
+_**"If you build the guts to do something, anything, then you better save enough to face the consequences."**_
 
-— Vincent van Gogh
+— Criss Jami
 <!-- quote_end -->
 
 <br>
