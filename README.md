@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you build the guts to do something, anything, then you better save enough to face the consequences."**_
+_**"All life is an experiment. The more experiments you make, the better."**_
 
-— Criss Jami
+— Ralph Waldo Emerson
 <!-- quote_end -->
 
 <br>
