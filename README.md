@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."**_
+_**"The majority of what you want will come from the minority of what you do."**_
 
-— Sonia Ricotti
+— Gary Keller
 <!-- quote_end -->
 
 <br>
