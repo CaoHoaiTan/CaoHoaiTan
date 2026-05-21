@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do not believe that you will reach your destination without leaving the shore. "**_
+_**"When one door closes another door opens. "**_
 
-— Chinese Proverb
+— Alexander Graham Bell
 <!-- quote_end -->
 
 <br>
