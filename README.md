@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You can have it all. You just can't have it all at once. "**_
+_**"Someday death will take us to another star."**_
 
-— Oprah Winfrey
+— Vincent van Gogh
 <!-- quote_end -->
 
 <br>
