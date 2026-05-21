@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Words have no power to impress the mind without the exquisite horror of their reality."**_
+_**"Life is about choice. You can choose to be a victim or anything else you like to be."**_
 
-— Edgar Allan Poe
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
