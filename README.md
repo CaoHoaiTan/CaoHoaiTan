@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There's no next time. It's now or never."**_
+_**"We've got to live, no matter how many skies have fallen."**_
 
-— Celestine Chua
+— D. H. Lawrence
 <!-- quote_end -->
 
 <br>
