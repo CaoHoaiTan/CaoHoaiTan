@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts."**_
+_**"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."**_
 
-— Charles Dickens
+— Bob Marley
 <!-- quote_end -->
 
 <br>
