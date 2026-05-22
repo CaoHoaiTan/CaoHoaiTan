@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Be regular and orderly in your life, so that you may be violent and original in your work."**_
+_**"Growing up is losing some illusions, in order to acquire others."**_
 
-— Gustave Flaubert
+— Virginia Woolf
 <!-- quote_end -->
 
 <br>
