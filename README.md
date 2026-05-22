@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Growing up is losing some illusions, in order to acquire others."**_
+_**"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts."**_
 
-— Virginia Woolf
+— Charles Dickens
 <!-- quote_end -->
 
 <br>
