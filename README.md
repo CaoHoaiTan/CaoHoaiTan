@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"All life is an experiment. The more experiments you make, the better."**_
+_**"The difference between treason and patriotism is only a matter of dates."**_
 
-— Ralph Waldo Emerson
+— Alexandre Dumas
 <!-- quote_end -->
 
 <br>
