@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you are totally at peace with yourself, nothing can shake you."**_
+_**"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."**_
 
-— Deepam Chaterjee
+— Elbert Hubbard
 <!-- quote_end -->
 
 <br>
