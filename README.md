@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."**_
+_**"I admire those who do good and expect nothing in return."**_
 
-— Bob Marley
+— Roy T. Bennett
 <!-- quote_end -->
 
 <br>
