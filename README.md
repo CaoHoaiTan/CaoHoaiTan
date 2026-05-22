@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Every act of creation is first an act of destruction."**_
+_**"When you are totally at peace with yourself, nothing can shake you."**_
 
-— Pablo Picasso
+— Deepam Chaterjee
 <!-- quote_end -->
 
 <br>
