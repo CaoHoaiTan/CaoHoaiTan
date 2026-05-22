@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."**_
+_**"To some degree, you control your life by controlling your time."**_
 
-— Elbert Hubbard
+— Conrad Hilton
 <!-- quote_end -->
 
 <br>
