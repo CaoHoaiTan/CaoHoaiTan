@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life is what happens to you while you're busy making other plans."**_
+_**"Everyone you meet is fighting a battle you know nothing about. Be kind. Always."**_
 
-— John Lennon
+— Robin Williams
 <!-- quote_end -->
 
 <br>
