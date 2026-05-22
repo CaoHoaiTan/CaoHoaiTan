@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you do not change direction, you may end up where you are heading."**_
+_**"The best time to plant a tree was 20 years ago. The second best time is now."**_
 
-— Lao Tzu
+— Zen Proverb
 <!-- quote_end -->
 
 <br>
