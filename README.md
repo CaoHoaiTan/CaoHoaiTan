@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To some degree, you control your life by controlling your time."**_
+_**"If you do not change direction, you may end up where you are heading."**_
 
-— Conrad Hilton
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
