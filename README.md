@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I admire those who do good and expect nothing in return."**_
+_**"Life is what happens to you while you're busy making other plans."**_
 
-— Roy T. Bennett
+— John Lennon
 <!-- quote_end -->
 
 <br>
