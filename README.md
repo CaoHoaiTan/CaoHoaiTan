@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The difference between treason and patriotism is only a matter of dates."**_
+_**"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."**_
 
-— Alexandre Dumas
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
