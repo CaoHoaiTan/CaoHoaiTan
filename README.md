@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't let what you cannot do interfere with what you can do."**_
+_**"There's no next time. It's now or never."**_
 
-— John Wooden
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
