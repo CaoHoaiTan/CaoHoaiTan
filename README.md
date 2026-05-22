@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everyone you meet is fighting a battle you know nothing about. Be kind. Always."**_
+_**"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it."**_
 
-— Robin Williams
+— Dale Carnegie
 <!-- quote_end -->
 
 <br>
