@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We've got to live, no matter how many skies have fallen."**_
+_**"Be regular and orderly in your life, so that you may be violent and original in your work."**_
 
-— D. H. Lawrence
+— Gustave Flaubert
 <!-- quote_end -->
 
 <br>
