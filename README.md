@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."**_
+_**"Every act of creation is first an act of destruction."**_
 
-— Carlos Ruiz Zafon
+— Pablo Picasso
 <!-- quote_end -->
 
 <br>
