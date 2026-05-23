@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There are few reasons for telling the truth, but for lying the number is infinite."**_
+_**"Decide what your truth is. Then live it."**_
 
-— Carlos Ruiz Zafon
+— Kamal Ravikant
 <!-- quote_end -->
 
 <br>
