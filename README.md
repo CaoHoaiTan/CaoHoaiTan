@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Live the moment for the moment."**_
+_**"Anyone telling you it's pointless to share your perspective is sharing their perspective."**_
 
-— Michael Jordan
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
