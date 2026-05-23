@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Anyone telling you it's pointless to share your perspective is sharing their perspective."**_
+_**"Small men think they are small; great men never know they are great. "**_
 
-— Jack Butcher
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
