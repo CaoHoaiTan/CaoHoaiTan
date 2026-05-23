@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."**_
+_**"Don't let what you cannot do interfere with what you can do."**_
 
-— Steve Jobs
+— John Wooden
 <!-- quote_end -->
 
 <br>
