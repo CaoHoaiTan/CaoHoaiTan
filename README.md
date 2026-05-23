@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It isn't what you do, but how you do it."**_
+_**"There is no greater agony than bearing an untold story inside you."**_
 
-— John Wooden
+— Maya Angelou
 <!-- quote_end -->
 
 <br>
