@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Decide what your truth is. Then live it."**_
+_**"Little minds have little worries, big minds have no time for worries."**_
 
-— Kamal Ravikant
+— Ralph Waldo Emerson
 <!-- quote_end -->
 
 <br>
