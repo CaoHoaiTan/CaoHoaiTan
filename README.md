@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you can see it in your mind, you can hold it in your mind."**_
+_**"There are few reasons for telling the truth, but for lying the number is infinite."**_
 
-— Steve Harvey
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
