@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is no one giant step that does it. It's a lot of little steps."**_
+_**"Live the moment for the moment."**_
 
-— Peter A. Cohen
+— Michael Jordan
 <!-- quote_end -->
 
 <br>
