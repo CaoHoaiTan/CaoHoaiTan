@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Whatever is begun in anger, ends in shame."**_
+_**"No idea, no matter how good, will work if it doesn't get used."**_
 
-— Benjamin Franklin
+— Peter A. Cohen
 <!-- quote_end -->
 
 <br>
