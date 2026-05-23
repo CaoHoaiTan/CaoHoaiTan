@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it."**_
+_**"Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."**_
 
-— Dale Carnegie
+— Steve Jobs
 <!-- quote_end -->
 
 <br>
