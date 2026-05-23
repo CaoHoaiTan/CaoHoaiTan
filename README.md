@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is no greater agony than bearing an untold story inside you."**_
+_**"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."**_
 
-— Maya Angelou
+— Joan Rivers
 <!-- quote_end -->
 
 <br>
