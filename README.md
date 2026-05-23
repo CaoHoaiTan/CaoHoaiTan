@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No idea, no matter how good, will work if it doesn't get used."**_
+_**"If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."**_
 
-— Peter A. Cohen
+— Roy T. Bennett
 <!-- quote_end -->
 
 <br>
