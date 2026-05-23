@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The secret of change is to focus all your energy not on fighting the old, but on building the new."**_
+_**"Whatever is begun in anger, ends in shame."**_
 
-— Dan Millman
+— Benjamin Franklin
 <!-- quote_end -->
 
 <br>
