@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I know not all that may be coming, but be it what it will, I'll go to it laughing."**_
+_**"The secret of change is to focus all your energy not on fighting the old, but on building the new."**_
 
-— Herman Melville
+— Dan Millman
 <!-- quote_end -->
 
 <br>
