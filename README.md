@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't let what you cannot do interfere with what you can do."**_
+_**"If you can see it in your mind, you can hold it in your mind."**_
 
-— John Wooden
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
