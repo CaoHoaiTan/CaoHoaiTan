@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Men go to far greater lengths to avoid what they fear than to obtain what they desire."**_
+_**"There is no one giant step that does it. It's a lot of little steps."**_
 
-— Dan Brown
+— Peter A. Cohen
 <!-- quote_end -->
 
 <br>
