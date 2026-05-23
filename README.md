@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Look to the beauty of this day, miracles are all around you."**_
+_**"I know not all that may be coming, but be it what it will, I'll go to it laughing."**_
 
-— Mary Engelbreit
+— Herman Melville
 <!-- quote_end -->
 
 <br>
