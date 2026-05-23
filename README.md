@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."**_
+_**"Look to the beauty of this day, miracles are all around you."**_
 
-— Joan Rivers
+— Mary Engelbreit
 <!-- quote_end -->
 
 <br>
