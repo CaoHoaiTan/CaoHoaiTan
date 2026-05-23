@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Little minds have little worries, big minds have no time for worries."**_
+_**"It isn't what you do, but how you do it."**_
 
-— Ralph Waldo Emerson
+— John Wooden
 <!-- quote_end -->
 
 <br>
