@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."**_
+_**"Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway."**_
 
-— Roy T. Bennett
+— Earl Nightingale
 <!-- quote_end -->
 
 <br>
