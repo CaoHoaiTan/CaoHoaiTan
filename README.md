@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway."**_
+_**"Men go to far greater lengths to avoid what they fear than to obtain what they desire."**_
 
-— Earl Nightingale
+— Dan Brown
 <!-- quote_end -->
 
 <br>
