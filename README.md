@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Small men think they are small; great men never know they are great. "**_
+_**"Presents are made for the pleasure of who gives them, not the merits of who receives them."**_
 
-— Chinese Proverb
+— Carlos Ruiz Zafon
 <!-- quote_end -->
 
 <br>
