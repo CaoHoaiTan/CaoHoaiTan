@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less."**_
+_**"Learn only how to avoid seeking for and attaching yourselves to anything."**_
 
-— Dan Millman
+— Huang Po
 <!-- quote_end -->
 
 <br>
