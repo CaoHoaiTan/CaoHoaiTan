@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Learn only how to avoid seeking for and attaching yourselves to anything."**_
+_**"Being wrong opens us up to the possibility of change."**_
 
-— Huang Po
+— Mark Manson
 <!-- quote_end -->
 
 <br>
