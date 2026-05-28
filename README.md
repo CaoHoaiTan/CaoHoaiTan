@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Being wrong opens us up to the possibility of change."**_
+_**"You just can't beat the person who never gives up."**_
 
-— Mark Manson
+— Babe Ruth
 <!-- quote_end -->
 
 <br>
