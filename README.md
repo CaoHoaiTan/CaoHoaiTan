@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You just can't beat the person who never gives up."**_
+_**"Do something to move yourself toward your major goal every day."**_
 
-— Babe Ruth
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
