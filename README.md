@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better."**_
+_**"Continuous effort - not strength or intelligence - is the key to unlocking our potential."**_
 
-— Spencer Johnson
+— Winston Churchill
 <!-- quote_end -->
 
 <br>
