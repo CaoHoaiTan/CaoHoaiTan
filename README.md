@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Continuous effort - not strength or intelligence - is the key to unlocking our potential."**_
+_**"The only thing worse than being blind is having sight but no vision."**_
 
-— Winston Churchill
+— Helen Keller
 <!-- quote_end -->
 
 <br>
