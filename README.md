@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The only thing worse than being blind is having sight but no vision."**_
+_**"You are always your own best guru, your own best teacher, the answers are always inside you."**_
 
-— Helen Keller
+— Sathya Sai Baba
 <!-- quote_end -->
 
 <br>
