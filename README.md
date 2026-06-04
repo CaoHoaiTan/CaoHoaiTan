@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are always your own best guru, your own best teacher, the answers are always inside you."**_
+_**"Expect the best of yourself, and then do what is necessary to make it a reality."**_
 
-— Sathya Sai Baba
+— Ralph Marston
 <!-- quote_end -->
 
 <br>
