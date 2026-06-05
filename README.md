@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Expect the best of yourself, and then do what is necessary to make it a reality."**_
+_**"One of the most difficult things is not to change society - but to change yourself."**_
 
-— Ralph Marston
+— Nelson Mandela
 <!-- quote_end -->
 
 <br>
