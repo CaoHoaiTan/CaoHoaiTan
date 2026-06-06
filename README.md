@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"One of the most difficult things is not to change society - but to change yourself."**_
+_**"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life."**_
 
-— Nelson Mandela
+— Confucius
 <!-- quote_end -->
 
 <br>
