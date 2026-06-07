@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life."**_
+_**"A lot of people have gone further than they thought they could because someone else thought they could."**_
 
-— Confucius
+— Zig Ziglar
 <!-- quote_end -->
 
 <br>
