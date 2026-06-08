@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A lot of people have gone further than they thought they could because someone else thought they could."**_
+_**"I like the dreams of the future better than the history of the past."**_
 
-— Zig Ziglar
+— Thomas Jefferson
 <!-- quote_end -->
 
 <br>
