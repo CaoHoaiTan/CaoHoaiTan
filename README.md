@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I like the dreams of the future better than the history of the past."**_
+_**"Given the choice between the experience of pain and nothing, I would choose pain."**_
 
-— Thomas Jefferson
+— William Faulkner
 <!-- quote_end -->
 
 <br>
