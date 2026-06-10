@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Given the choice between the experience of pain and nothing, I would choose pain."**_
+_**"Short cuts make long delays."**_
 
-— William Faulkner
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
