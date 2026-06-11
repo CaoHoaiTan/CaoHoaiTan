@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Short cuts make long delays."**_
+_**"Every man desires to live long, but no man wishes to be old."**_
 
-— J.R.R. Tolkien
+— Jonathan Swift
 <!-- quote_end -->
 
 <br>
