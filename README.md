@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Every man desires to live long, but no man wishes to be old."**_
+_**"The future depends on what you do today."**_
 
-— Jonathan Swift
+— Mahatma Gandhi
 <!-- quote_end -->
 
 <br>
