@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The future depends on what you do today."**_
+_**"You can't build a reputation on what you are going to do."**_
 
-— Mahatma Gandhi
+— Henry Ford
 <!-- quote_end -->
 
 <br>
