@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You can't build a reputation on what you are going to do."**_
+_**"Anger begins with folly, and ends with repentance."**_
 
-— Henry Ford
+— Beverly Sills
 <!-- quote_end -->
 
 <br>
