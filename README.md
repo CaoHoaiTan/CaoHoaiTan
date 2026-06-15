@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Anger begins with folly, and ends with repentance."**_
+_**"Your dream has to be bigger than your fear."**_
 
-— Beverly Sills
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
