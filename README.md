@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your dream has to be bigger than your fear."**_
+_**"The road to success is always under construction.."**_
 
-— Steve Harvey
+— Lily Tomlin
 <!-- quote_end -->
 
 <br>
