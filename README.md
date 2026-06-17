@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The road to success is always under construction.."**_
+_**"Never whine, never complain, never try to justify yourself."**_
 
-— Lily Tomlin
+— Robert Greene
 <!-- quote_end -->
 
 <br>
