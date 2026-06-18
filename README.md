@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Never whine, never complain, never try to justify yourself."**_
+_**"But better die than live mechanically a life that is a repetition of repetitions."**_
 
-— Robert Greene
+— D. H. Lawrence
 <!-- quote_end -->
 
 <br>
