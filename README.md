@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"But better die than live mechanically a life that is a repetition of repetitions."**_
+_**"All we have to decide is what to do with the time that is given to us."**_
 
-— D. H. Lawrence
+— J.R.R. Tolkien
 <!-- quote_end -->
 
 <br>
