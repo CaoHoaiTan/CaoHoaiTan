@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"All we have to decide is what to do with the time that is given to us."**_
+_**"Let us rather run the risk of wearing out than rusting out."**_
 
-— J.R.R. Tolkien
+— Theodore Roosevelt
 <!-- quote_end -->
 
 <br>
