@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Let us rather run the risk of wearing out than rusting out."**_
+_**"Only when you can be extremely pliable and soft can you be extremely hard and strong."**_
 
-— Theodore Roosevelt
+— Zen Proverb
 <!-- quote_end -->
 
 <br>
