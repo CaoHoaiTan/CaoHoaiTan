@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Only when you can be extremely pliable and soft can you be extremely hard and strong."**_
+_**"Argue for your limitations and sure enough, they're yours."**_
 
-— Zen Proverb
+— Richard Bach
 <!-- quote_end -->
 
 <br>
