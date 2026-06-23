@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Argue for your limitations and sure enough, they're yours."**_
+_**"You may be one person in this world, but to one person you may mean the world."**_
 
-— Richard Bach
+— Unknown
 <!-- quote_end -->
 
 <br>
