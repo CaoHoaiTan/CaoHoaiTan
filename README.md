@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You may be one person in this world, but to one person you may mean the world."**_
+_**"You're on earth. There's no cure for that."**_
 
-— Unknown
+— Samuel Beckett
 <!-- quote_end -->
 
 <br>
