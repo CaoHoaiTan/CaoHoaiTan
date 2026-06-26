@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The best fighter is never angry."**_
+_**"It is dangerous to be right in matters on which the established authorities are wrong."**_
 
-— Lao Tzu
+— Voltaire
 <!-- quote_end -->
 
 <br>
