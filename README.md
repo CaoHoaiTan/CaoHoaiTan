@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It is dangerous to be right in matters on which the established authorities are wrong."**_
+_**"Do Something. If it works, do more of it. If it doesn't, do something else."**_
 
-— Voltaire
+— Franklin D. Roosevelt
 <!-- quote_end -->
 
 <br>
