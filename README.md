@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do Something. If it works, do more of it. If it doesn't, do something else."**_
+_**"Truth is the offspring of silence and meditation."**_
 
-— Franklin D. Roosevelt
+— Isaac Newton
 <!-- quote_end -->
 
 <br>
