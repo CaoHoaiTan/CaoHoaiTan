@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Truth is the offspring of silence and meditation."**_
+_**"All leaders are readers."**_
 
-— Isaac Newton
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
