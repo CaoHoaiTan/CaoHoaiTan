@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"All leaders are readers."**_
+_**"To create more positive results in your life, replace 'if only' with 'next time'."**_
 
-— Jim Rohn
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
