@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To create more positive results in your life, replace 'if only' with 'next time'."**_
+_**"People who say it cannot be done should not interrupt those who are doing it."**_
 
-— Celestine Chua
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
