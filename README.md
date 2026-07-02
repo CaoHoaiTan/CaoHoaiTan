@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"People who say it cannot be done should not interrupt those who are doing it."**_
+_**"No one ever said life was fair. Just Eventful."**_
 
-— George Bernard Shaw
+— Carol Burnett
 <!-- quote_end -->
 
 <br>
