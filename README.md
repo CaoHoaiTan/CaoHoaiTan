@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No one ever said life was fair. Just Eventful."**_
+_**"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories."**_
 
-— Carol Burnett
+— Ray Bradbury
 <!-- quote_end -->
 
 <br>
