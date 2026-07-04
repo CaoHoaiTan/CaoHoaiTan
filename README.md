@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories."**_
+_**"Patience is bitter, but its fruit is sweet."**_
 
-— Ray Bradbury
+— Aristotle
 <!-- quote_end -->
 
 <br>
