@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Patience is bitter, but its fruit is sweet."**_
+_**"One of the advantages of being disorganized is that one is always having surprising discoveries."**_
 
-— Aristotle
+— A.A. Milne
 <!-- quote_end -->
 
 <br>
