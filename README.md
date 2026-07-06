@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"One of the advantages of being disorganized is that one is always having surprising discoveries."**_
+_**"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."**_
 
-— A.A. Milne
+— Betty White
 <!-- quote_end -->
 
 <br>
