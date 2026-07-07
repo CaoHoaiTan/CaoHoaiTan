@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."**_
+_**"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy."**_
 
-— Betty White
+— Sun Tzu
 <!-- quote_end -->
 
 <br>
