@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy."**_
+_**"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny."**_
 
-— Sun Tzu
+— Steve Maraboli
 <!-- quote_end -->
 
 <br>
