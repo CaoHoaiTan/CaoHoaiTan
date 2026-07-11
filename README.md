@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When something comes from within, when it is a part of you, you have no choice but to live it, to express it."**_
+_**"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories."**_
 
-— Kamal Ravikant
+— Ray Bradbury
 <!-- quote_end -->
 
 <br>
