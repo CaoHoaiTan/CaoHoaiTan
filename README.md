@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Success is a consequence and must not be a goal."**_
+_**"Words, once they are printed, have a life of their own."**_
 
-— Gustave Flaubert
+— Carol Burnett
 <!-- quote_end -->
 
 <br>
