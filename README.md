@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Words, once they are printed, have a life of their own."**_
+_**"Pain doesn't last. And when it's gone, we have something to show for it. Growth."**_
 
-— Carol Burnett
+— Kamal Ravikant
 <!-- quote_end -->
 
 <br>
