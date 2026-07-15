@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Pain doesn't last. And when it's gone, we have something to show for it. Growth."**_
+_**"There's no next time. It's now or never."**_
 
-— Kamal Ravikant
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
