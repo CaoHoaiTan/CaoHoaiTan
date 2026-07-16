@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There's no next time. It's now or never."**_
+_**"Knowing others is wisdom, knowing yourself is enlightenment."**_
 
-— Celestine Chua
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
