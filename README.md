@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Knowing others is wisdom, knowing yourself is enlightenment."**_
+_**"Death and life have their determined appointments; riches and honors depend upon heaven."**_
 
-— Lao Tzu
+— Confucius
 <!-- quote_end -->
 
 <br>
