@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Death and life have their determined appointments; riches and honors depend upon heaven."**_
+_**"Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"**_
 
-— Confucius
+— Robin Sharma
 <!-- quote_end -->
 
 <br>
