@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution."**_
+_**"An action committed in anger is an action doomed to failure."**_
 
-— Albus Dumbledore
+— Genghis Khan
 <!-- quote_end -->
 
 <br>
