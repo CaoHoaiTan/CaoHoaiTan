@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"An action committed in anger is an action doomed to failure."**_
+_**"Do Something. If it works, do more of it. If it doesn't, do something else."**_
 
-— Genghis Khan
+— Franklin D. Roosevelt
 <!-- quote_end -->
 
 <br>
