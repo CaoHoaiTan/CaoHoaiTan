@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do Something. If it works, do more of it. If it doesn't, do something else."**_
+_**"Nothing makes a man broad-minded like adversity."**_
 
-— Franklin D. Roosevelt
+— Will Rogers
 <!-- quote_end -->
 
 <br>
