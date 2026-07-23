@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Nothing makes a man broad-minded like adversity."**_
+_**"You have the potential for greatness."**_
 
-— Will Rogers
+— Steve Harvey
 <!-- quote_end -->
 
 <br>
