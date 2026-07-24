@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You have the potential for greatness."**_
+_**"Change is hard at first, messy in the middle and gorgeous at the end."**_
 
-— Steve Harvey
+— Robin Sharma
 <!-- quote_end -->
 
 <br>
