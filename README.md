@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Change is hard at first, messy in the middle and gorgeous at the end."**_
+_**"It is amazing what you can accomplish if you do not care who gets the credit."**_
 
-— Robin Sharma
+— Harry S. Truman
 <!-- quote_end -->
 
 <br>
