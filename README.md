@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It is amazing what you can accomplish if you do not care who gets the credit."**_
+_**"Let us rather run the risk of wearing out than rusting out."**_
 
-— Harry S. Truman
+— Theodore Roosevelt
 <!-- quote_end -->
 
 <br>
