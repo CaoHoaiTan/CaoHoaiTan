@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Let us rather run the risk of wearing out than rusting out."**_
+_**"But better die than live mechanically a life that is a repetition of repetitions."**_
 
-— Theodore Roosevelt
+— D. H. Lawrence
 <!-- quote_end -->
 
 <br>
