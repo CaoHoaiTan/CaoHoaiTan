@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"But better die than live mechanically a life that is a repetition of repetitions."**_
+_**"Be kind, for everyone you meet is fighting a harder battle."**_
 
-— D. H. Lawrence
+— Plato
 <!-- quote_end -->
 
 <br>
