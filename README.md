@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Be kind, for everyone you meet is fighting a harder battle."**_
+_**"If you let your head get too big, it'll break your neck."**_
 
-— Plato
+— Elvis Presley
 <!-- quote_end -->
 
 <br>
