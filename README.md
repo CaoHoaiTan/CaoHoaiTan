@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It isn't that they can't see the solution. It is that they can't see the problem."**_
+_**"New beginnings are disguised as painful endings."**_
 
-— Gilbert Chesterton
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
