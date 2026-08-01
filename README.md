@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"New beginnings are disguised as painful endings."**_
+_**"Expect the best of yourself, and then do what is necessary to make it a reality."**_
 
-— Lao Tzu
+— Ralph Marston
 <!-- quote_end -->
 
 <br>
