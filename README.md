@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Expect the best of yourself, and then do what is necessary to make it a reality."**_
+_**"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present."**_
 
-— Ralph Marston
+— Joan Rivers
 <!-- quote_end -->
 
 <br>
