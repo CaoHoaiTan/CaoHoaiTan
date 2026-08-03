@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present."**_
+_**"It all depends on what you choose to believe."**_
 
-— Joan Rivers
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
