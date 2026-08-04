@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It all depends on what you choose to believe."**_
+_**"Love never keeps a man from pursuing his destiny."**_
 
-— Spencer Johnson
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
