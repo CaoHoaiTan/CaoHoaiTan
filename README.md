@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Love never keeps a man from pursuing his destiny."**_
+_**"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."**_
 
-— Paulo Coelho
+— Epictetus
 <!-- quote_end -->
 
 <br>
