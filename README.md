@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Talk sense to a fool and he calls you foolish."**_
+_**"Ability is a poor man's wealth."**_
 
-— Euripides
+— John Wooden
 <!-- quote_end -->
 
 <br>
