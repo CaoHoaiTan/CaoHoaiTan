@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Ability is a poor man's wealth."**_
+_**"The greatest discovery of all time is that a person can change their future by merely changing their attitude."**_
 
-— John Wooden
+— Oprah Winfrey
 <!-- quote_end -->
 
 <br>
