@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The greatest discovery of all time is that a person can change their future by merely changing their attitude."**_
+_**"Magic is believing in yourself, if you can do that, you can make anything happen."**_
 
-— Oprah Winfrey
+— Johann Wolfgang von Goethe
 <!-- quote_end -->
 
 <br>
