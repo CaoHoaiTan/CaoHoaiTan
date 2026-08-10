@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Magic is believing in yourself, if you can do that, you can make anything happen."**_
+_**"Correct what you can. Learn from what you can't."**_
 
-— Johann Wolfgang von Goethe
+— Toni Morrison
 <!-- quote_end -->
 
 <br>
