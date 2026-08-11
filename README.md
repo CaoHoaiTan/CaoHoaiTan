@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Correct what you can. Learn from what you can't."**_
+_**"Still your waters."**_
 
-— Toni Morrison
+— Josh Waitzkin
 <!-- quote_end -->
 
 <br>
