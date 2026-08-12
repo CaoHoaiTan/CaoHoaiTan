@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Still your waters."**_
+_**"Sadness is but a wall between two gardens."**_
 
-— Josh Waitzkin
+— Kahlil Gibran
 <!-- quote_end -->
 
 <br>
