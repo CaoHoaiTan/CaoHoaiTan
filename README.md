@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Sadness is but a wall between two gardens."**_
+_**"Keep your face to the sunshine and you cannot see the shadows."**_
 
-— Kahlil Gibran
+— Helen Keller
 <!-- quote_end -->
 
 <br>
