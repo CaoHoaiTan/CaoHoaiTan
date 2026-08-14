@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep your face to the sunshine and you cannot see the shadows."**_
+_**"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work."**_
 
-— Helen Keller
+— Gary Keller
 <!-- quote_end -->
 
 <br>
