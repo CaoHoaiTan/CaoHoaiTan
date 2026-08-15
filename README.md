@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work."**_
+_**"Man suffers only because he takes seriously what the gods made for fun."**_
 
-— Gary Keller
+— Alan Watts
 <!-- quote_end -->
 
 <br>
