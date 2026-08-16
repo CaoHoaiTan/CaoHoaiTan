@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Man suffers only because he takes seriously what the gods made for fun."**_
+_**"Motivation is what gets you started. Habit is what keeps you going."**_
 
-— Alan Watts
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
