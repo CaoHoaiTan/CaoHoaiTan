@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Motivation is what gets you started. Habit is what keeps you going."**_
+_**"Your happiness is what truly matters most. Do what you have to do in order to be happy."**_
 
-— Jim Rohn
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
