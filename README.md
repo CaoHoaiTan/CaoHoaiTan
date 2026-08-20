@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Why change? Everyone has his own style. When you have found it, you should stick to it."**_
+_**"No matter how tall the mountain is, it cannot block the sun."**_
 
-— Audrey Hepburn
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
