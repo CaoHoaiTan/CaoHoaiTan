@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"No matter how tall the mountain is, it cannot block the sun."**_
+_**"Listen to the secret sound, the real sound, which is inside you."**_
 
-— Chinese Proverb
+— Kabir
 <!-- quote_end -->
 
 <br>
