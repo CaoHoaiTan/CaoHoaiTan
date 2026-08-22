@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Listen to the secret sound, the real sound, which is inside you."**_
+_**"Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more."**_
 
-— Kabir
+— Nikola Tesla
 <!-- quote_end -->
 
 <br>
