@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The biggest adventure you can ever take is to live the life of your dreams."**_
+_**"The quicker you let go of old cheese, the sooner you find new cheese."**_
 
-— Oprah Winfrey
+— Spencer Johnson
 <!-- quote_end -->
 
 <br>
