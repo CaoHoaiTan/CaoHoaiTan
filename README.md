@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The quicker you let go of old cheese, the sooner you find new cheese."**_
+_**"Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience."**_
 
-— Spencer Johnson
+— Denis Waitley
 <!-- quote_end -->
 
 <br>
