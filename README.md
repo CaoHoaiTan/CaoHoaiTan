@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience."**_
+_**"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists."**_
 
-— Denis Waitley
+— Charles Dickens
 <!-- quote_end -->
 
 <br>
