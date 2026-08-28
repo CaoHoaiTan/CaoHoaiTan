@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."**_
+_**"Whatever you decide to do, make sure it makes you happy."**_
 
-— Richard Bach
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
