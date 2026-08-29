@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Whatever you decide to do, make sure it makes you happy."**_
+_**"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment."**_
 
-— Paulo Coelho
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
