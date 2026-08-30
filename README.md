@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment."**_
+_**"Keep your eyes on the goal, and just keep taking the next step towards completing it."**_
 
-— Celestine Chua
+— John Carmack
 <!-- quote_end -->
 
 <br>
