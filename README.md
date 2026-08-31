@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep your eyes on the goal, and just keep taking the next step towards completing it."**_
+_**"To a mind that is still, the entire universe surrenders."**_
 
-— John Carmack
+— Zhuangzi
 <!-- quote_end -->
 
 <br>
