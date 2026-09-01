@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To a mind that is still, the entire universe surrenders."**_
+_**"Stop wasting time defending your problems and work on addressing them instead."**_
 
-— Zhuangzi
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
