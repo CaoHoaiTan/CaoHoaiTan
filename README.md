@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Stop wasting time defending your problems and work on addressing them instead."**_
+_**"Force has no place where there is need of skill."**_
 
-— Celestine Chua
+— Herodotus
 <!-- quote_end -->
 
 <br>
