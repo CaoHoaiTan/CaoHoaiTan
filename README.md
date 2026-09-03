@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Force has no place where there is need of skill."**_
+_**"If you don't find the time, if you don't do the work, you don't get the results."**_
 
-— Herodotus
+— Arnold Schwarzenegger
 <!-- quote_end -->
 
 <br>
