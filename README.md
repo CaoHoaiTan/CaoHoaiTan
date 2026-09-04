@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you don't find the time, if you don't do the work, you don't get the results."**_
+_**"Do good by stealth, and blush to find it fame."**_
 
-— Arnold Schwarzenegger
+— Alexander Pope
 <!-- quote_end -->
 
 <br>
