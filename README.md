@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Do good by stealth, and blush to find it fame."**_
+_**"However difficult life may seem, there is always something you can do and succeed at."**_
 
-— Alexander Pope
+— Stephen Hawking
 <!-- quote_end -->
 
 <br>
