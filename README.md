@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"However difficult life may seem, there is always something you can do and succeed at."**_
+_**"A man with outward courage dares to die: a man with inner courage dares to live."**_
 
-— Stephen Hawking
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
