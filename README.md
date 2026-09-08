@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The greatest treasures are those invisible to the eye but found by the heart."**_
+_**"High thoughts must have high language."**_
 
-— Judy Garland
+— Aristophanes
 <!-- quote_end -->
 
 <br>
