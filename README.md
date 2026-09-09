@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"High thoughts must have high language."**_
+_**"We are all like the bright moon, we still have our darker side."**_
 
-— Aristophanes
+— Kahlil Gibran
 <!-- quote_end -->
 
 <br>
