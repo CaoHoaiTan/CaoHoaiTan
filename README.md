@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are all like the bright moon, we still have our darker side."**_
+_**"Simple words, repeated daily, can change your life."**_
 
-— Kahlil Gibran
+— Maxime Lagace
 <!-- quote_end -->
 
 <br>
