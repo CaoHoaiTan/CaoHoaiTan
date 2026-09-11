@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Simple words, repeated daily, can change your life."**_
+_**"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose."**_
 
-— Maxime Lagace
+— Ming-Dao Deng
 <!-- quote_end -->
 
 <br>
