@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose."**_
+_**"He who leaves the game wins it."**_
 
-— Ming-Dao Deng
+— Nicolas Chamfort
 <!-- quote_end -->
 
 <br>
