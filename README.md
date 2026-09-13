@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"He who leaves the game wins it."**_
+_**"Everyday is a second chance."**_
 
-— Nicolas Chamfort
+— Unknown
 <!-- quote_end -->
 
 <br>
