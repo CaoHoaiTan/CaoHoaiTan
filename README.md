@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everyday is a second chance."**_
+_**"If you spend too much time thinking about a thing, you'll never get it done."**_
 
-— Unknown
+— Bruce Lee
 <!-- quote_end -->
 
 <br>
