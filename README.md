@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you spend too much time thinking about a thing, you'll never get it done."**_
+_**"Knowing yourself is the beginning of all wisdom."**_
 
-— Bruce Lee
+— Aristotle
 <!-- quote_end -->
 
 <br>
