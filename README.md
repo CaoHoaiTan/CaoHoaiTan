@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."**_
+_**"When things go wrong, don't go with them."**_
 
-— Brian Tracy
+— Elvis Presley
 <!-- quote_end -->
 
 <br>
