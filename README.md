@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When things go wrong, don't go with them."**_
+_**"Till it has loved, no man or woman can become itself."**_
 
-— Elvis Presley
+— Emily Dickinson
 <!-- quote_end -->
 
 <br>
