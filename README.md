@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Till it has loved, no man or woman can become itself."**_
+_**"Make your mind your own business."**_
 
-— Emily Dickinson
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
