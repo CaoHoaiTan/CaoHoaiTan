@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Make your mind your own business."**_
+_**"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."**_
 
-— Jack Butcher
+— Henry Ward Beecher
 <!-- quote_end -->
 
 <br>
