@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."**_
+_**"The smallest act of kindness is worth more than the greatest intention."**_
 
-— Henry Ward Beecher
+— Kahlil Gibran
 <!-- quote_end -->
 
 <br>
