@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The smallest act of kindness is worth more than the greatest intention."**_
+_**"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."**_
 
-— Kahlil Gibran
+— Samuel Butler
 <!-- quote_end -->
 
 <br>
