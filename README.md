@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."**_
+_**"When we strive to become better than we are, everything around us becomes better, too."**_
 
-— Samuel Butler
+— Paulo Coelho
 <!-- quote_end -->
 
 <br>
