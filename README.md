@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are what you believe in. You become that which you believe you can become."**_
+_**"Give so much away people insist on paying you."**_
 
-— Bhagavad Gita
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
