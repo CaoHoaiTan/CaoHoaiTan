@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Give so much away people insist on paying you."**_
+_**"If you get up one more time than you fall, you will make it through."**_
 
-— Jack Butcher
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
