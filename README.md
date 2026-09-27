@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you get up one more time than you fall, you will make it through."**_
+_**"Don't let your learning lead to knowledge. Let your learning lead to action."**_
 
-— Chinese Proverb
+— Jim Rohn
 <!-- quote_end -->
 
 <br>
