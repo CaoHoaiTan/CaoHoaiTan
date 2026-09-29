@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"One mistake does not have to rule a person's entire life."**_
+_**"Silence is a source of great strength."**_
 
-— Joyce Meyer
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
