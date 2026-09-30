@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Silence is a source of great strength."**_
+_**"If you've made a mistake, it's better just to laugh at it."**_
 
-— Lao Tzu
+— Zen Proverb
 <!-- quote_end -->
 
 <br>
