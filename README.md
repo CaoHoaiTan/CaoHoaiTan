@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you've made a mistake, it's better just to laugh at it."**_
+_**"When you stop questioning, you stop learning."**_
 
-— Zen Proverb
+— Lolly Daskal
 <!-- quote_end -->
 
 <br>
