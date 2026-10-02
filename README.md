@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you stop questioning, you stop learning."**_
+_**"I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."**_
 
-— Lolly Daskal
+— Nelson Mandela
 <!-- quote_end -->
 
 <br>
