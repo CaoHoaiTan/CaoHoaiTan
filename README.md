@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"We are born from a quiet sleep, and we die to a calm awakening"**_
+_**"Would you rather learn to deal with the truth now than be forced to do so later on?"**_
 
-— Zhuangzi
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
