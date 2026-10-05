@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Would you rather learn to deal with the truth now than be forced to do so later on?"**_
+_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
 
-— Celestine Chua
+— Paramahansa Yogananda
 <!-- quote_end -->
 
 <br>
