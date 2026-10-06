@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Engage in those actions and thoughts that nurture the good qualities you want to have."**_
+_**"A gentleman is one who puts more into the world than he takes out."**_
 
-— Paramahansa Yogananda
+— George Bernard Shaw
 <!-- quote_end -->
 
 <br>
