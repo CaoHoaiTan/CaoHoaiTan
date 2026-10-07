@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A gentleman is one who puts more into the world than he takes out."**_
+_**"Be happy now, without reason - or you never will be at all."**_
 
-— George Bernard Shaw
+— Dan Millman
 <!-- quote_end -->
 
 <br>
