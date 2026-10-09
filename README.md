@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Success is not how high you have climbed, but how you make a positive difference to the world."**_
+_**"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool."**_
 
-— Roy T. Bennett
+— Ray Bradbury
 <!-- quote_end -->
 
 <br>
