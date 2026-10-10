@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool."**_
+_**"Ability is a poor man's wealth."**_
 
-— Ray Bradbury
+— John Wooden
 <!-- quote_end -->
 
 <br>
