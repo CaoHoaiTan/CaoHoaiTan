@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Ability is a poor man's wealth."**_
+_**"You only live once, but if you do it right, once is enough."**_
 
-— John Wooden
+— Mae West
 <!-- quote_end -->
 
 <br>
