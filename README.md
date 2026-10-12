@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You only live once, but if you do it right, once is enough."**_
+_**"Those who know, do. Those that understand, teach."**_
 
-— Mae West
+— Aristotle
 <!-- quote_end -->
 
 <br>
