@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Those who know, do. Those that understand, teach."**_
+_**"Life can be the scariest and most beautiful thing simultaneously."**_
 
-— Aristotle
+— Maxime Lagace
 <!-- quote_end -->
 
 <br>
