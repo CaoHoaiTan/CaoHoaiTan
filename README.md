@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Life can be the scariest and most beautiful thing simultaneously."**_
+_**"Genius is one percent inspiration and ninety-nine percent perspiration."**_
 
-— Maxime Lagace
+— Thomas Edison
 <!-- quote_end -->
 
 <br>
