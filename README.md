@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Genius is one percent inspiration and ninety-nine percent perspiration."**_
+_**"Everything eaten is killed. Every meal is a sacrifice."**_
 
-— Thomas Edison
+— Adi Da Samraj
 <!-- quote_end -->
 
 <br>
