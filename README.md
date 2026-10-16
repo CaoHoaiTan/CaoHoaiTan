@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Everything eaten is killed. Every meal is a sacrifice."**_
+_**"As we first succeed, we will find ourselves in new situations, facing new problems."**_
 
-— Adi Da Samraj
+— Ryan Holiday
 <!-- quote_end -->
 
 <br>
