@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"As we first succeed, we will find ourselves in new situations, facing new problems."**_
+_**"You've got to get up every morning with determination if you're going to go to bed with satisfaction."**_
 
-— Ryan Holiday
+— George Lorimer
 <!-- quote_end -->
 
 <br>
