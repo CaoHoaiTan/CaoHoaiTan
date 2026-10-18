@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You've got to get up every morning with determination if you're going to go to bed with satisfaction."**_
+_**"The greater the impact you want to make, the greater your influence needs to be."**_
 
-— George Lorimer
+— Lolly Daskal
 <!-- quote_end -->
 
 <br>
