@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The greater the impact you want to make, the greater your influence needs to be."**_
+_**"The secret of change is to focus all your energy not on fighting the old, but on building the new."**_
 
-— Lolly Daskal
+— Colin R. Davis
 <!-- quote_end -->
 
 <br>
