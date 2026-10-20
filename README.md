@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The secret of change is to focus all your energy not on fighting the old, but on building the new."**_
+_**"Success is about doing the right thing, not about doing everything right."**_
 
-— Colin R. Davis
+— Gary Keller
 <!-- quote_end -->
 
 <br>
