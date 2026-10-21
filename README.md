@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Success is about doing the right thing, not about doing everything right."**_
+_**"Each day your life grows a day shorter. Make every move count."**_
 
-— Gary Keller
+— Ming-Dao Deng
 <!-- quote_end -->
 
 <br>
