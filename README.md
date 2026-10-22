@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Each day your life grows a day shorter. Make every move count."**_
+_**"The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."**_
 
-— Ming-Dao Deng
+— Mark Twain
 <!-- quote_end -->
 
 <br>
