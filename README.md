@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."**_
+_**"If someone betrays you once, it's their fault; if they betray you twice, it's your fault."**_
 
-— Mark Twain
+— Eleanor Roosevelt
 <!-- quote_end -->
 
 <br>
