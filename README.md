@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."**_
+_**"The wiser you get, the less you care to look like a fool."**_
 
-— Henry Ward Beecher
+— Maxime Lagace
 <!-- quote_end -->
 
 <br>
