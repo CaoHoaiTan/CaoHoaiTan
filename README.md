@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The wiser you get, the less you care to look like a fool."**_
+_**"Loving thoughts and actions are clearly beneficial for our physical and mental health."**_
 
-— Maxime Lagace
+— Dalai Lama
 <!-- quote_end -->
 
 <br>
