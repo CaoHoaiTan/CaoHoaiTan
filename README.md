@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Loving thoughts and actions are clearly beneficial for our physical and mental health."**_
+_**"Still your waters."**_
 
-— Dalai Lama
+— Josh Waitzkin
 <!-- quote_end -->
 
 <br>
