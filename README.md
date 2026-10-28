@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Still your waters."**_
+_**"What we dwell on is who we become."**_
 
-— Josh Waitzkin
+— Oprah Winfrey
 <!-- quote_end -->
 
 <br>
