@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"What we dwell on is who we become."**_
+_**"The more reasons you have for achieving your goal, the more determined you will become."**_
 
-— Oprah Winfrey
+— Brian Tracy
 <!-- quote_end -->
 
 <br>
