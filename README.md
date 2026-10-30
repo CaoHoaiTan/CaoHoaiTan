@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The more reasons you have for achieving your goal, the more determined you will become."**_
+_**"Distant water does not put out a nearby fire."**_
 
-— Brian Tracy
+— Chinese Proverb
 <!-- quote_end -->
 
 <br>
