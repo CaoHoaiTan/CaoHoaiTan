@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Distant water does not put out a nearby fire."**_
+_**"When you believe in a thing, believe in it all the way, implicitly and unquestionable."**_
 
-— Chinese Proverb
+— Walt Disney
 <!-- quote_end -->
 
 <br>
