@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When you believe in a thing, believe in it all the way, implicitly and unquestionable."**_
+_**"When something comes from within, when it is a part of you, you have no choice but to live it, to express it."**_
 
-— Walt Disney
+— Kamal Ravikant
 <!-- quote_end -->
 
 <br>
