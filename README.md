@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When something comes from within, when it is a part of you, you have no choice but to live it, to express it."**_
+_**"If you want others to be happy, practice compassion. If you want to be happy, practice compassion."**_
 
-— Kamal Ravikant
+— Dalai Lama
 <!-- quote_end -->
 
 <br>
