@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you want others to be happy, practice compassion. If you want to be happy, practice compassion."**_
+_**"When the time is gone, you can never get it back."**_
 
-— Dalai Lama
+— Stephen King
 <!-- quote_end -->
 
 <br>
