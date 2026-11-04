@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"When the time is gone, you can never get it back."**_
+_**"What the eye doesn't see and the mind doesn't know, doesn't exist."**_
 
-— Stephen King
+— D. H. Lawrence
 <!-- quote_end -->
 
 <br>
