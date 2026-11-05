@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"What the eye doesn't see and the mind doesn't know, doesn't exist."**_
+_**"Debt is the slavery of the free."**_
 
-— D. H. Lawrence
+— Publilius Syrus
 <!-- quote_end -->
 
 <br>
