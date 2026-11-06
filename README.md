@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Debt is the slavery of the free."**_
+_**"Your mind is infinite, it's your doubts that are limiting."**_
 
-— Publilius Syrus
+— Robert Kiyosaki
 <!-- quote_end -->
 
 <br>
