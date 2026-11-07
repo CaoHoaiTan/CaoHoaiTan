@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Your mind is infinite, it's your doubts that are limiting."**_
+_**"The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened."**_
 
-— Robert Kiyosaki
+— Kamal Ravikant
 <!-- quote_end -->
 
 <br>
