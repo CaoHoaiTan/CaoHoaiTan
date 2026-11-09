@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"People spend too much time doing and not enough time thinking about what they should be doing."**_
+_**"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it."**_
 
-— Naval Ravikant
+— Dale Carnegie
 <!-- quote_end -->
 
 <br>
