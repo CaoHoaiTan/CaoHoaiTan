@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."**_
+_**"A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."**_
 
-— Colin Powell
+— Roy T. Bennett
 <!-- quote_end -->
 
 <br>
