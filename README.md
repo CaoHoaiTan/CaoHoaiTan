@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."**_
+_**"In the practice of tolerance, one's enemy is the best teacher."**_
 
-— Roy T. Bennett
+— Dalai Lama
 <!-- quote_end -->
 
 <br>
