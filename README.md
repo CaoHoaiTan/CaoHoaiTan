@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"In the practice of tolerance, one's enemy is the best teacher."**_
+_**"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question."**_
 
-— Dalai Lama
+— John Tukey
 <!-- quote_end -->
 
 <br>
