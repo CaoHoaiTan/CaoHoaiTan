@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"There is nothing more frightful than ignorance in action."**_
+_**"The weak can never forgive. Forgiveness is the attribute of the strong."**_
 
-— Johann Wolfgang von Goethe
+— Mahatma Gandhi
 <!-- quote_end -->
 
 <br>
