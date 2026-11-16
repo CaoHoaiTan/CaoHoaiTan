@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"The weak can never forgive. Forgiveness is the attribute of the strong."**_
+_**"I dream my painting and I paint my dream."**_
 
-— Mahatma Gandhi
+— Vincent van Gogh
 <!-- quote_end -->
 
 <br>
