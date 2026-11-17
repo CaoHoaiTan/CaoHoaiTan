@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"I dream my painting and I paint my dream."**_
+_**"If you can't argue both sides, you can't argue."**_
 
-— Vincent van Gogh
+— Jack Butcher
 <!-- quote_end -->
 
 <br>
