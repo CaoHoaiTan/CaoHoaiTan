@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"If you can't argue both sides, you can't argue."**_
+_**"Silence is a source of great strength."**_
 
-— Jack Butcher
+— Lao Tzu
 <!-- quote_end -->
 
 <br>
