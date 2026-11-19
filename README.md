@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Silence is a source of great strength."**_
+_**"You are never too old to become younger."**_
 
-— Lao Tzu
+— Mae West
 <!-- quote_end -->
 
 <br>
