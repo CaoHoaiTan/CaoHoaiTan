@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"You are never too old to become younger."**_
+_**"Never waste a minute of your precious life thinking about people you don't like."**_
 
-— Mae West
+— Celestine Chua
 <!-- quote_end -->
 
 <br>
