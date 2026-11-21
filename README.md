@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Never waste a minute of your precious life thinking about people you don't like."**_
+_**"To avoid criticism, do nothing, say nothing, and be nothing."**_
 
-— Celestine Chua
+— Elbert Hubbard
 <!-- quote_end -->
 
 <br>
