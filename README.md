@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"To avoid criticism, do nothing, say nothing, and be nothing."**_
+_**"Peace is not the absence of conflict, but the ability to cope with it."**_
 
-— Elbert Hubbard
+— Unknown
 <!-- quote_end -->
 
 <br>
