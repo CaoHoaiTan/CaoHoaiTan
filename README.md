@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Peace is not the absence of conflict, but the ability to cope with it."**_
+_**"Have a vision. Be demanding."**_
 
-— Unknown
+— Colin Powell
 <!-- quote_end -->
 
 <br>
