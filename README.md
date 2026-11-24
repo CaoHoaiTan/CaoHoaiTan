@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Have a vision. Be demanding."**_
+_**"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way."**_
 
-— Colin Powell
+— Robert Kiyosaki
 <!-- quote_end -->
 
 <br>
