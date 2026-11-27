@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"Keep your eyes on the stars, but remember to keep your feet on the ground."**_
+_**"It takes half your life before you discover life is a do-it-yourself project."**_
 
-— Theodore Roosevelt
+— Napoleon Hill
 <!-- quote_end -->
 
 <br>
