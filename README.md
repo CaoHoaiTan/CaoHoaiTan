@@ -1,7 +1,7 @@
 <!-- quote_start -->
-_**"It takes half your life before you discover life is a do-it-yourself project."**_
+_**"High thoughts must have high language."**_
 
-— Napoleon Hill
+— Aristophanes
 <!-- quote_end -->
 
 <br>
